@@ -1,5 +1,5 @@
-# FICCC CTBF News
-## Regular gathering this Friday  (2/21) at 5:45 pm in the St. Luke Church basement.
+# FICCC CTBF Weekly Newsletter (2/17/2020 - 2/23/2020)
+## Regular gathering this Friday  (2/21) at 5:45 pm in the St. Luke Church basement.
 
 - 敬拜/Worship & 中文查经/Chinese Bible study leader: Fan Yang
 
