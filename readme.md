@@ -21,7 +21,8 @@ Topic: CTBF Prayer meeting
 Time: This is a recurring meeting Meet anytime
 
 Join Zoom Meeting
-https://cornell.zoom.us/j/653272552
+[https://cornell.zoom.us/j/653272552](https://cornell.zoom.us/j/653272552)
+
 
 Meeting ID: 653 272 552
 
