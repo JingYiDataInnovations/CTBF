@@ -15,7 +15,7 @@
 
 - Invitation is the same zoom meeting link. 
 
-Jing Yi is inviting you to a scheduled Zoom meeting.
+- Jing Yi is inviting you to a scheduled Zoom meeting.
 
 Topic: CTBF Prayer meeting
 Time: This is a recurring meeting Meet anytime
