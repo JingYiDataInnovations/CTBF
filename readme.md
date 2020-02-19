@@ -7,6 +7,8 @@
 
 - 儿童服侍/Childcare: Jianguo Xu and Jing Yi
 
+- St. Luke Lutheran Church: 109 Oak Avenue • Ithaca NY
+
 
 
 ## Zoom prayer meeting on Saturday at 7 pm.
