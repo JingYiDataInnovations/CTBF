@@ -61,13 +61,13 @@ https://cornell.zoom.us/skype/653272552
 ## Prayer
 
 - Missions/World 
-- 
+
 1) Pray for Derrick as he travels to Laos for a visa: Derrick will leave on 25 February to get a new visa for Thailand and will come back on 29 February. Pray that the Lord will graciously bless this trip so that Derrick could successfully receive his visa and continue his ministry in Thailand. Let’s also ask God to protect his health while he is traveling, especially with the corona virus situation starting to significantly impact other Asian countries besides China.
 
  2) Pray for the corona virus situation in China and other countries: The corona virus outbreak that originated in China is now spreading more rapidly in other countries as well. Let’s pray for God to have mercy on China and on all those lands affected by the virus, and to grant wisdom and strength to all those who are trying to contain the virus, especially officials and doctors and researchers. Let’s ask the Lord to use this crisis to open people’s hearts to the gospel and use the Church to be a witness to His love and peace, especially in China.
 
 - Church
-- 
+
 1. Fellowship Groups’ Leadership Transition: Continue to pray for God’s guidance upon those who are approached to fill some deacon positions when the current term ends in late April. Also continue to pray for some fellowship groups that are considering leadership change or adjustment for the next school year. 
 
 2. Elders and Deacons Nomination: Continue to pray for God’s guidance upon those who are approached to fill some elder and deacon positions when the current term ends in late April.
@@ -84,7 +84,7 @@ b. Communion: Pray for our readiness to take the communion.
 c. People Who Serve: Pray for everyone who will be serving in the worship service.
 
 - Individuals
-- 
+
 1. Job Search and School Application: Pray for church members who are eagerly waiting for good result of their job and school applications. Some might get the result in these few weeks.
 
 2. Emotional and Spiritual Issues: Pray for a few church members who are struggling with emotional and spiritual issues due to e.g. depression, stress, interpersonal conflict, sins, etc.  Pray especially for those who need more encouragement and caring to come to church.
