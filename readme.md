@@ -11,7 +11,7 @@
 - **St. Luke Lutheran Church:** 109 Oak Avenue • Ithaca NY
 
 # Previous Newsletter
-[2/17/2020 - 2/23/2020](2_25_2020)
+- [2/17/2020 - 2/23/2020](2_25_2020)
 
 ## Zoom prayer meeting on Saturday at 7 pm.
 
