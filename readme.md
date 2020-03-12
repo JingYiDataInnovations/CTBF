@@ -5,6 +5,49 @@
 
 - 查经主题/ Topic of Bible study: 在前的要在后; 路加13：18-30; Cindy带领
 
+# Zoom link for Friday Fellowship:
+		
+	Jing Yi is inviting you to a scheduled Zoom meeting.
+	
+	Topic: CTBF Friday Fellowship
+	Time: Mar 13, 2020 07:00 PM Eastern Time (US and Canada)
+	
+	Join Zoom Meeting
+	
+	[https://cornell.zoom.us/j/619246494](https://cornell.zoom.us/j/619246494 "https://cornell.zoom.us/j/619246494")
+	
+	Meeting ID: 619 246 494
+	
+	One tap mobile
+	+16468769923,,619246494# US (New York)
+	+16699006833,,619246494# US (San Jose)
+	
+	Dial by your location
+	        +1 646 876 9923 US (New York)
+	        +1 669 900 6833 US (San Jose)
+	Meeting ID: 619 246 494
+	Find your local number: https://cornell.zoom.us/u/acrSGY6Jfw
+	
+	Join by SIP
+	619246494@zoomcrc.com
+	
+	Join by H.323
+	162.255.37.11 (US West)
+	162.255.36.11 (US East)
+	221.122.88.195 (China)
+	115.114.131.7 (India Mumbai)
+	115.114.115.7 (India Hyderabad)
+	213.19.144.110 (EMEA)
+	103.122.166.55 (Australia)
+	209.9.211.110 (Hong Kong)
+	64.211.144.160 (Brazil)
+	69.174.57.160 (Canada)
+	207.226.132.110 (Japan)
+	Meeting ID: 619 246 494
+	
+	Join by Skype for Business
+	https://cornell.zoom.us/skype/619246494
+
 
 <!--- **First Ithaca Chinese Christian: House of Joy:** 429 Mitchell St, Ithaca, NY 14850 • Ithaca NY-->
 
@@ -14,49 +57,47 @@
 - [3/2/2020 - 3/8/2020](3_2_2020)
 
 ## Zoom prayer meeting on Saturday at 7 pm.
-
-- Invitation is the same zoom meeting link. 
-
-- Jing Yi is inviting you to a scheduled Zoom meeting.
-
-Topic: CTBF Prayer meeting
-Time: This is a recurring meeting Meet anytime
-
-Join Zoom Meeting
-[https://cornell.zoom.us/j/653272552](https://cornell.zoom.us/j/653272552)
-
-
-Meeting ID: 653 272 552
-
-One tap mobile
-+16468769923,,653272552# US (New York)
-+16699006833,,653272552# US (San Jose)
-
-Dial by your location
-        +1 646 876 9923 US (New York)
-        +1 669 900 6833 US (San Jose)
-Meeting ID: 653 272 552
-Find your local number: https://cornell.zoom.us/u/acrSGY6Jfw
-
-Join by SIP
-653272552@zoomcrc.com
-
-Join by H.323
-162.255.37.11 (US West)
-162.255.36.11 (US East)
-221.122.88.195 (China)
-115.114.131.7 (India Mumbai)
-115.114.115.7 (India Hyderabad)
-213.19.144.110 (EMEA)
-103.122.166.55 (Australia)
-209.9.211.110 (Hong Kong)
-64.211.144.160 (Brazil)
-69.174.57.160 (Canada)
-207.226.132.110 (Japan)
-Meeting ID: 653 272 552
-
-Join by Skype for Business
-https://cornell.zoom.us/skype/653272552
+	
+	Jing Yi is inviting you to a scheduled Zoom meeting.
+	
+	Topic: CTBF Prayer meeting
+	Time: This is a recurring meeting Meet anytime
+	
+	Join Zoom Meeting
+	[https://cornell.zoom.us/j/653272552](https://cornell.zoom.us/j/653272552)
+	
+	
+	Meeting ID: 653 272 552
+	
+	One tap mobile
+	+16468769923,,653272552# US (New York)
+	+16699006833,,653272552# US (San Jose)
+	
+	Dial by your location
+	        +1 646 876 9923 US (New York)
+	        +1 669 900 6833 US (San Jose)
+	Meeting ID: 653 272 552
+	Find your local number: https://cornell.zoom.us/u/acrSGY6Jfw
+	
+	Join by SIP
+	653272552@zoomcrc.com
+	
+	Join by H.323
+	162.255.37.11 (US West)
+	162.255.36.11 (US East)
+	221.122.88.195 (China)
+	115.114.131.7 (India Mumbai)
+	115.114.115.7 (India Hyderabad)
+	213.19.144.110 (EMEA)
+	103.122.166.55 (Australia)
+	209.9.211.110 (Hong Kong)
+	64.211.144.160 (Brazil)
+	69.174.57.160 (Canada)
+	207.226.132.110 (Japan)
+	Meeting ID: 653 272 552
+	
+	Join by Skype for Business
+	https://cornell.zoom.us/skype/653272552
 
 ## Prayer
 
