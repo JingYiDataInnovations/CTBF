@@ -1,17 +1,17 @@
 
-# FICCC CTBF Weekly Newsletter (3/2/2020 - 3/8/2020)
+# FICCC CTBF Weekly Newsletter (3/9/2020 - 3/15/2020)
 
-- 这周五晚上（3/6）7:30pm 在FICCC我们团契将会参与到中文堂联合聚会 
+- **请注意这周聚会我们通过Zoom进行。**
 
-- 康奈尔校园事工Cru的两位同工Abi和赛门黄分享他们在CRU的专职服事的经历. 
+- 查经主题/ Topic of Bible study: 在前的要在后; 路加13：18-30; Cindy带领
 
-- **请注意 这周聚会我们不供应晚餐。**
 
-- **First Ithaca Chinese Christian: House of Joy:** 429 Mitchell St, Ithaca, NY 14850 • Ithaca NY
+<!--- **First Ithaca Chinese Christian: House of Joy:** 429 Mitchell St, Ithaca, NY 14850 • Ithaca NY-->
 
 # Previous Newsletter
 - [2/17/2020 - 2/23/2020](2_25_2020)
 - [2/24/2020 - 3/1/2020](2_24_2020)
+- [3/2/2020 - 3/8/2020](3_2_2020)
 
 ## Zoom prayer meeting on Saturday at 7 pm.
 
@@ -61,33 +61,41 @@ https://cornell.zoom.us/skype/653272552
 ## Prayer
 
 - Missions/World
-	1) Pray for Derrick as he travels to Laos for a visa: Derrick will leave on 25 February to get a new visa for Thailand and will come back on 29 February. Pray that the Lord will graciously bless this trip so that Derrick could successfully receive his visa and continue his ministry in Thailand. Let’s also ask God to protect his health while he is traveling, especially with the corona virus situation starting to significantly impact other Asian countries besides China.
 	
-	2) Pray for the corona virus situation in China and other countries: The corona virus outbreak that originated in China is now spreading more rapidly in other countries as well. Let’s pray for God to have mercy on China and on all those lands affected by the virus, and to grant wisdom and strength to all those who are trying to contain the virus, especially officials and doctors and researchers. Let’s ask the Lord to use this crisis to open people’s hearts to the gospel and use the Church to be a witness to His love and peace, especially in China.
+	1) Pray for David and Susan as they train Chinese Christians in missions: David and Susan are serving in a country close to China, where they are training Christians  from China how to engage in cross-cultural missions. Due to the corona virus, their Chinese students, who are staying with local non-Christian families, have been asked not to go out and about. Pray for God to give these Chinese believers peace and patience in the midst of the current uncertainty, and for the light of their faith to shine brightly before their host families, so that they might come to know Christ.
+	
+	2) Pray for Abi Bernard as she serves with Cru at Cornell this semester: Abi is an active member of the English congregation who just graduated from Cornell in December and is engaged in full-time campus ministry with Cru at Cornell this semester. Let’s pray that God blesses her relationships with students and uses her to lead those who are not yet believers to become genuine followers of Christ.
+	
+	3)   Coronavirus outbreak in US: Let’s all pray hard for the global  coronavirus attack and the current outbreak in US and New York State.  May the Lord protect, intervene, and heal.  Pray that those who are in fear and have anxiety would find the God of peace and hope. And, as we live in this E-World where social media becomes an effective means to empower us to make an impact,  may it be a time where we can continue to bring good news to people!
+
 
 - Church
 
-	1. Fellowship Groups’ Leadership Transition: Continue to pray for God’s guidance upon those who are approached to fill some deacon positions when the current term ends in late April. Also continue to pray for some fellowship groups that are considering leadership change or adjustment for the next school year. 
+	1. Minister Peng Tian’s Visit: Brother Peng Tian, the candidate for Campus Minister position, will officially visit our church this week. On Friday, 3/13, he will give a message in the combined fellowship meeting in church at 7:30 PM. On Saturday, 3/14, he will meet with search committee in the morning   and  have a diner with  English Congregation in Pastor Paul’s home.  And on this coming Sunday, he will give two sermons in the two services. Pray for God’s guidance in and through all of these activities.
 	
-	2. Elders and Deacons Nomination: Continue to pray for God’s guidance upon those who are approached to fill some elder and deacon positions when the current term ends in late April.
+	2. CCCF’s Spring Break Retreat: CCCF will have retreat during the first weekend of Cornell’s Spring Break, from 3/27 to 30. Let us continue pray for the planning and preparation.
 	
-	3. Church Special Member Meeting on 3/1:  FICCC board calls for a call a special member’s meeting on 3/1 to approve a motion of selling the townhouse donated by a member. At its November 9, 2019 meeting, the board accepted the donation of the townhouse’s appreciation in Ithaca, NY from a church member by paying the donor’s remaining bank loan balance and selling it at the market value. The realized gain will be used to support Church’s ministries especially for the campus ministry. Please pray the special meeting.
+	3. Women’s Fasting & Prayer Retreat on 4/3-4 (* Men’s will be on 4/10-11):  Let us continue pray for planning and preparation of the retreat, and God’s preparation of many sisters’ heart for attending the retreat.
 	
-	4. Adult Sunday School: The classes will be going into the fifth week the coming Sunday. Let us support the teachers and students of all classes with prayers. Pray for everyone to maintain consistent attendance and great learning attitude till the very end of this semester.
-	
-	5. Retreats Planning: Please continue pray for the planning of three retreats in the spring—CCCF fellowship retreat (3/27-30); Sister’s Fasting & Prayer Retreat (4/3-4).Men’s Fasting & Prayer Retreat (4/10-11);  Different teams of people will be planning and making preparation for these retreats in these few weeks.  Pray for God’s guidance upon them.
-	
-	6. Worship Service: Pray for the two worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-	a. Speaker: Rev. Bin Tang will preach on “Use Our Spiritual Gifts” from 1 Corinthians 12：1-11 ; Romans12：6-8  in Chinese Service. Pastor Paul  will preach in the English Service.  Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
-	b. Communion: Pray for our readiness to take the communion.
-	c. People Who Serve: Pray for everyone who will be serving in the worship service.
+	4. Preparation for 4/26 Annual Meeting: In preparation for the April 26th annual meeting a few things must be done in March.  Let us pray for good progress.
+	a.   New Members: People who are not yet members but wish to get voting right in the 4/26 annual meeting must submit their membership application to Michael Cao by 3/15 .Pray that some Christians will gladly apply and share the responsibility of loving this small local church and taking good care of her.
+	b.   Annual Report: All fellowship leaders and ministry leaders will write a report about the ministries they are responsible for.  All reports are due March 15. Pray that the coworkers will follow the guidance of the Holy Spirit to write these reports and find the process beneficial and even joyful.
+	c.   Elders and Deacons Nomination: Several FICCC members have been approached to consider being nominated to be deacons.  Pray that these people will seek God's guidance and be obedient.  
+
+	5. Worship Service: Pray for the two worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+	a. Speaker: Brother Peng Tian will preach on “The Leper, The Paralytic, and Tax Collector” from Luke 5:32  in Chinese  Service and on “The Worshiper in the Prison” from Acts 16: 16-34 in English service .  Please pray for his sermons preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
+	b. People Who Serve: Pray for everyone who will be serving in the worship service.
 
 - Individuals
-
-	1. Job Search and School Application: Pray for church members who are eagerly waiting for good result of their job and school applications. Some might get the result in these few weeks.
 	
-	2. Emotional and Spiritual Issues: Pray for a few church members who are struggling with emotional and spiritual issues due to e.g. depression, stress, interpersonal conflict, sins, etc.  Pray especially for those who need more encouragement and caring to come to church.
+	1. Praise! The Birth of Moyao Xue First Baby Girl: Praise the Lord for blessing Xin Huang and Moyao Xue with their second baby  last Sunday ,3/8,  Jana Huang ,weighs 7 lb.13 oz. Pray for everyone in the family.
 	
-	3. Christian Professors in Our Church: It is not easy to be a college professor.  It can be even more challenging for Christian professors to teach in secular schools.  But at the same time there are also great opportunities for Christian professors to make an impact to many people on campus. Let us give thanks to God for all the Christian professors in our church, and pray and ask God to watch over them in their teaching, research, family, health, involvement in the church, and witnessing for Christ.
+	2. Christian Parents: No matter how old their children are, parents find different kind of challenges in each stage of their children’s life. There can be time when the parents feel helpless or feel that they have failed to be good parents.  Pray for Christian parents who have felt this kind of struggles and pains. Pray that God will keep the hope alive and teach them how to pray for their children.
 	
+	3. Job Search: As some members have got good result in their job search, let us share the joy with them and give praises to God.  Let us also continue to pray for quite a few other church members who are still waiting.
+	
+	4. Students Who Will Have Major Exams Before Spring Break: A few students in our church will have major exams after the Spring Break.  Let us pray for their preparation.
+	
+	
+		
 
