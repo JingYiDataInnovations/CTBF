@@ -5,7 +5,7 @@
 
 - 查经主题/ Topic of Bible study: 自高与自卑; 路加14：1-23; Mao Huang 带领
 
-# Zoom link for Friday Fellowship:
+# Zoom link for Friday Fellowship at 7 pm:
 		
 	Jing Yi is inviting you to a scheduled Zoom meeting.
 	
