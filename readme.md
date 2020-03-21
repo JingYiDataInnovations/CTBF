@@ -49,7 +49,6 @@
 	https://cornell.zoom.us/skype/619246494
 
 
-<!--- **First Ithaca Chinese Christian: House of Joy:** 429 Mitchell St, Ithaca, NY 14850 • Ithaca NY-->
 
 # Previous Newsletter
 - [2/17/2020 - 2/23/2020](2_25_2020)
