@@ -1,5 +1,5 @@
 
-# FICCC CTBF Weekly Newsletter (3/16/2020 - 3/22/2020)
+# FICCC CTBF Weekly Newsletter (3/23/2020 - 3/29/2020)
 
 
 - 查经主题/ Topic of Bible study: 门徒的代价; 路加14:25-35; Cindy 带领
