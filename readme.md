@@ -109,43 +109,48 @@
 		Join by Skype for Business
 		https://cornell.zoom.us/skype/653272552
 	
-	## Prayer
+## Prayer
 	
-	- Missions/World
+- Missions/World
 		
-		1) Pray for Zhang Tao and Yingyun as their third child is due this week: Zhang Tao is in his last semester of study at Gordon-Conwell Theological Seminary, and he and his wife Yingyun are expecting their third child this week (March 22 was the official due date). Pray for God’s gracious protection over the whole delivery process in the midst of the corona virus crisis. Praise God for the offers of support from brothers and sisters once the baby is born. Let’s also pray for special grace for Zhang Tao as he finishes up his last three courses, teaches two Sunday school classes, and supports Yingyun.
-		
-		 2) Pray for God’s protection from COVID19 and pollution for Derrick and Esther: Thailand has now been hit by the effects of the corona virus. Pray for God to protect the whole Tan family, and Derrick in particular, who has asthma and is at higher risk from the virus. Let’s also ask the Lord to make them effective messengers of the gospel at this anxious time. Lastly, pray for God by His mercy to raise up responsible officials who are motivated to deal with North Thailand’s very serious pollution problem, which is among the worst in the world (recently the governor of the province Derrick is in said there is no pollution problem in Thailand!) 
-		
-		3) Pray for David and Susan as they face the corona virus along with their students: A number of Chinese students who David and Susan have been training for cross-cultural missions returned to China recently, but 12 others will be staying with them because flights back home have been blocked. Pray that God will keep them safe from infection and will bless the time they have together in the city where they are, which is currently under lockdown.
+		1) Pray for Stuart and Peggy as they are back in the US: Stuart and Peggy have been back in the US since December and are staying with their daughter in Arizona. Pray that God will open a way for Stuart to get treatment for severe osteoporosis, which was recently diagnosed. Pray as well that God would make it possible for them to stay in touch with friends and colleagues far away without running into major technical obstacles.
 	
-	
-		4) Coronavirus Pandemic:  We are going through uncharted waters as we respond to the coronavirus crisis.  Leaders in the government, educational, medical, business and churches do not have the experience or expertise to know how to respond to the various issues related to this crisis.  But we can have peace that in the midst of these troubled waters, that Christ is the Captain of our ship (particularly our fellowship).  And the Bible promises that when we go through trials like this, that if we ask God for wisdom, He will give it to us generously (see James 1:2-8).  So let's pray that government, education, medical, business and church leaders  will humble themselves and seek God's wisdom to address medical and financial crises.  Pray that as a result revival will break out in our country and all over the world - particularly in the countries where the crisis is most severe .
-
-
+		2) Pray for Derrick and Esther and their family, who are not back in the US: Due to Thailand decision to declare a state of emergency over the corona virus and the need to avoid being in Thailand with expired visas and unable to leave, Derrick and Esther made a quick decision to travel back to the US with their kids, where they are currently half way through their 14 day quarantine in California. Pray that God will help them to use this time well, to finish up their current Thai language courses online, finish their kids homeschooling, and reconnect with their supporting churches in the US.
+		
+		3) Pray for FICCC’s Mission Committee as it meets in April: The Mission Committee at FICCC will be holding it twice-annual meeting in April. Pray for God to lead members of the committee as they seeks God’s will for how FICCC should support God’s work around the world. Especially ask that the Lord grants wisdom to discern which needs are priority and which can be left to later, so that our mission funds will yield maximum fruit and bring glory to God.
+		
+		4) Pray for Lu Tsun-En as he works on his Ph.D. dissertation in New Testament theology: Tsun-En works for Ambassadors for Christ (our church supports his ministry) and is also finishing a Ph.D. in New Testament theology at Westminster Theological Seminary. Let’s pray that God gives him great wisdom and discipline so that he can finish writing his thesis soon. Let’s also ask the Lord to provide for all of his financial needs.
+		
+		5) Coronavirus Pandemic:  The coronavirus pandemic may be the biggest worldwide crisis of our generation.  In our reaction to this crisis, may we follow the Lord's guidance to pray, "Thine kingdom come, they will be done on earth as it is in heaven," and "Not my will, but Your's be done."  May we pray that God will bring good out of the suffering and that revival will break out as people consider their mortality.  In Psalm 41:1, King David writes, "Blessed are those who have regard for the weak; the Lord delivers them in times of trouble."  May the crisis motivate those who are blessed with strength to help the weak. Pray for researchers to find cures for disease, government leaders to make wise decisions to save lives and jobs, educators to help their students learn, the wealthy to be generous to the poor, and spiritual leaders to counsel the depressed and lead them to the Lord.
 
 - Church
 
-	1. Students in the Coronavirus crisis:  Pray for students who face the difficulties of 1. Fellowship Groups’ Leadership Transition: Continue to pray for God’s guidance upon those who are approached to fill some deacon positions when the current term ends in late April. Also continue to pray for some fellowship groups that are considering leadership change or adjustment for the next school year.  
+		1. Pray for the Major Events in April.
+		a. Chinese Congregation Fasting & Prayer Retreat on 4/4: Continue to pray for our church’s Fasting and Prayer Retreat which will be held on 4/4. Pray that many brothers and sisters will be able to block out the time to attend this fasting and prayer retreat, and be richly blessed revived by the Spirit of God.
+		b. Good Friday Special Service: Our bilingual Good Friday service will be on April 10 from 5:30-7:00 pm.  Pray that the Holy Spirit leads Pastor Tang as he plans for the service and prepares his sermon.  Pray that the congregation will truly worship Jesus for the great sacrifice that He has made for us.
+		c. Easter Sunday: People tend to be more likely to attend Easter worship services than at other times of the year.  Pray for non-Christians to invite to listen to the English and Chinese Easter services.  Pray that they will believe the message of hope that the resurrection brings.
+		d. 4/22 Bible Read-a-thon Promotion and Sign Up: The current season of Bible Read-a-thon will come to an end on April 30.  Pray that many will be able to finish reading all the chapters before the deadline.  Promotion and sign up for the next season (May 1 – October 31) will take place in both services on April 22. Pray that many people, including some new people, will join our Bible Read-a-thon.
+		e. 4/26 Church Annual Meeting: We will have a special combined service and annual meeting on 4/26. Please pray for the preparation for the annual meeting which involves collecting, compiling and editing annual reports; drafting and sending e-mail meeting notice to members; and preparing ballots. Pray also for the preparation of the combined worship service. Pray for wisdom for members who are still considering whether to accept the nomination to be a board member.  Pray for wisdom in how to run the membership meeting online.
+		
+		2. All Church ministries online: Continue to pray that Pastor Paul and Pastor Tang will learn to effectively preach online.  Pray that many people will use their extra time to participate in our online prayer meetings, Bible studies and fellowship meetings.  Pray for unchurched people to invite to participate in these online ministries.  
+		
+		3. English Congregation: Praise God that our online worship services have been going pretty smoothly during the past three Sundays.  However, last Sunday the worship leader's computer screen froze while she was leading worship.  Pray for wisdom for the English congregation leaders to know how to address this issue to prevent it from happening again.  Pray that people will truly worship the Lord and listen to the sermons though not physically present in our church building.  Pray that our pastors will adjust well to preaching online.
+		
+		4. English  Evangelistic Sunday on April 5, Pat Zukeran, who is an international speaker, an author of several books on apologetics, and the host of the radio show, "Evidences and Answers" will preach a sermon in the online English worship service entitled, "If God Is Powerful and Good, Why Does He Allow Suffering and Evil?".  His sermon will include applications and illustrations regarding the current coronavirus crisis.  After the worship service, he will answer questions that people submit to the following google form:    https://forms.gle/vJiCcoz635odVDVY7.  Pray for Pat's preparation and that the Holy Spirit will empower him to address people's hearts and minds.  Pray for non-Christians to invite to listen to the sermon and that they will respond to the gospel.  Pray that Pat will have wisdom to answer the questions accurately.
+		
+		5. Youth Fellowship: Our online youth nights have moved to Thursday nights.  Praise God that more youth are participating now than before the coronavirus crisis. Praise God that our youth workers are able to lead more consistently so that the ratio of youth workers to youth is actually better now.  The youth and parents have bought the book "30 Days to Understand the Bible."  Pray that they will finish their assignments every week so that they will become more biblically literate and love the Bible more
+		
+		6. CCCF’s Retreat on 4/6-10: Ambassador For Christ (AFC) and Cornell Chinese Christian Fellowship (CCCF) are organizing this year's retreat in the format of "Online Bible Study Camp" starting from April 6th to April 10th (five days in total) 7:00 pm to 9:00 pm every night. The speaker is "Tsun En Lu," and the theme is "How to Interpret Jesus's Parables," which is his PhD dissertation topic at Westminster Seminary. Brothers, sisters, and seekers at all age are all welcome to join this online retreat. Please pray for the speaker’s message preparation, and God’s abundant blessings in this retreat.
+		
+		7. Worship Service: Pray for the two worship services this coming Sunday by online.  Let us worship with a joyful heart and lift up our voices to glorify God.
+		a. Speaker: Rev. Pastor Bin Tang will preach on “Time to be Drawn Near” from Poem16 in Chinese  Service and  Pat Zukeran from Hawaii will preach in English service.  Please pray for their sermons preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
+		b. Communion Service: communion will be served in both online worship services.  Pray for Pastor Tang and Pastor Paul that they will be able to officiate the services in a way that draws people to worship Christ for His great sacrifice.  Pray that members will obtain the bread and the grape juice or wine ahead of time, so that they will be able to participate in the service.
 
-	2. All Church ministries online: Continue to  pray that Pastor Paul and Pastor Tang will learn to effectively preach online.  Pray that many people will use their extra time to participate in our online prayer meetings, Bible studies and fellowship meetings.  Pray for unchurched people to invite to participate in these online ministries.  
-	
-	3. Planning for The Fasting & Prayer Retreat: Please continue pray for the planning of the fasting & prayer retreat on 4/5 online.
-	
-	4. Elders and Deacons Nomination: Continue to pray for God’s guidance upon those who are approached to fill some elder and deacon positions when the current term ends in late April.
-	
-	5. Worship Service: Pray for the two worship services this coming Sunday by online.  Let us worship with a joyful heart and lift up our voices to glorify God.
-	a. Speaker: Minister Daode Chen from MBCSFV,CA.will preach on “The good countermarching Shepherd” from John 10:11-30  in Chinese  Service and Pastor Paul will preach in English service.  Please pray for their sermons preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
-
-	
 
 - Individuals
 	
-	1. Good Balance in Stressful Situation: Many people in our church have to deal with stress frequently.  While we pray for God’s strength and grace upon them, let us also pray for wisdom and maturity to learn to keep good balance in life, especially in the areas of setting priorities and time management.
-	
-	2. College Admission: Many colleges will send admission notice around this Friday.  Pray for the high school seniors in our church who are waiting for the results. May God give them clear guidance when they have multiple choices. Let us also begin to pray for the kids who will come to study at Cornell and Ithaca College this Fall. Pray that God will bring many Christians to our church and work together with us to strengthen more fellowships, e.g. Basil, CCCF,CTBF and family fellowships; and that God will also bring many seekers to our church to hear the Gospel and come to know the grace of God.
-	
-	
+		1. Students Who Are Graduating in May: Many students in our church are graduating in May.  Many of them have to complete major thesis or project, and at the same time start looking for jobs or applying for graduate schools.  Pray for the strength and guidance they need from God.
 		
-			
+		2. Singles: Let us pray for God’s guidance upon many single students in the area of relationship. Pray that Christians will honor God by firmly holding to biblical principles. Let us also pray that many seekers will entrust their future to God by faith, become members of God’s family, and build Christ-centered families with godly spouses that God provide for them.
+	
 
