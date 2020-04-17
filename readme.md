@@ -18,7 +18,7 @@
 # Prayer meeting:
 
 - **祷告主题：为疫情祷告**
-- **Workday prayer meeting**
+- **Workday prayer meetings:**
 		
 		周一中午12-12:30pm祷告，https://cornell.zoom.us/j/2901281918.
 		
@@ -26,7 +26,7 @@
 		
 		周四中午12-12:30pm祷告，https://cornell.zoom.us/j/2901281918.
 		
-- **Zoom prayer meeting on Saturday at 7 pm.**
+- **Saturday prayer meeting at 7 pm:**
 	
 		Jing Yi is inviting you to a scheduled Zoom meeting.
 		
