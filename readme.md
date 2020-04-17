@@ -4,7 +4,7 @@
 
 - 查经主题/ Topic of Bible study: 饶恕与感恩 ; 路加 17:1-19; Star 带领
 		
-- Zoom meeting starts at 7 pm on Friday:
+- Zoom meeting starts at **7 pm on Friday**:
 		
 		
 
