@@ -1,5 +1,5 @@
 
-# FICCC CTBF Weekly Newsletter (4/13/2020 - 4/19/2020)
+# FICCC CTBF Weekly Newsletter (4/20/2020 - 4/26/2020)
 
 
 - **查经主题/ Topic of Bible study**: 税吏撒该 ; 路加 19：1-10; 
