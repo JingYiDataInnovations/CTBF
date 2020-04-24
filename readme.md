@@ -2,9 +2,10 @@
 # FICCC CTBF Weekly Newsletter (4/13/2020 - 4/19/2020)
 
 
-- 查经主题/ Topic of Bible study: 税吏撒该 ; 路加 19：1-10; Dong Wang 带领
+- **查经主题/ Topic of Bible study**: 税吏撒该 ; 路加 19：1-10; 
+- **带领/Lead**: Dong Wang 
 		
-- Zoom meeting starts at **7 pm on Friday**:
+- Zoom meeting starts at **7 pm on Friday:**
 		
 		
 
