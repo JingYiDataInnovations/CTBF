@@ -80,31 +80,42 @@
 		
 		周四中午12-12:30pm祷告，https://cornell.zoom.us/j/2901281918.
 		
-- **Saturday prayer meeting at 7 pm:**
+- **Saturday prayer meeting at 7:30 pm:**
 	
 		Jing Yi is inviting you to a scheduled Zoom meeting.
-		
-		Topic: CTBF Prayer meeting
+
+		Topic: CTBF Prayer Meeting
 		Time: This is a recurring meeting Meet anytime
 		
 		Join Zoom Meeting
-		[https://cornell.zoom.us/j/653272552](https://cornell.zoom.us/j/653272552)
+		https://cornell.zoom.us/j/96981272574
 		
-		
-		Meeting ID: 653 272 552
-		
+		Meeting ID: 969 8127 2574
 		One tap mobile
-		+16468769923,,653272552# US (New York)
-		+16699006833,,653272552# US (San Jose)
+		+16465189805,,96981272574# US (New York)
+		+16468769923,,96981272574# US (New York)
 		
 		Dial by your location
-		        +1 646 876 9923 US (New York)
-		        +1 669 900 6833 US (San Jose)
-		Meeting ID: 653 272 552
+        +1 646 518 9805 US (New York)
+        +1 646 876 9923 US (New York)
+        +1 470 381 2552 US (Atlanta)
+        +1 786 635 1003 US (Miami)
+        +1 312 626 6799 US (Chicago)
+        +1 470 250 9358 US (Atlanta)
+        +1 602 753 0140 US (Phoenix)
+        +1 651 372 8299 US
+        +1 669 219 2599 US (San Jose)
+        +1 669 900 6833 US (San Jose)
+        +1 720 928 9299 US (Denver)
+        +1 971 247 1195 US (Portland)
+        +1 253 215 8782 US
+        +1 301 715 8592 US
+        +1 346 248 7799 US (Houston)
+		Meeting ID: 969 8127 2574
 		Find your local number: https://cornell.zoom.us/u/acrSGY6Jfw
 		
 		Join by SIP
-		653272552@zoomcrc.com
+		96981272574@zoomcrc.com
 		
 		Join by H.323
 		162.255.37.11 (US West)
@@ -114,14 +125,16 @@
 		115.114.115.7 (India Hyderabad)
 		213.19.144.110 (EMEA)
 		103.122.166.55 (Australia)
-		209.9.211.110 (Hong Kong)
+		209.9.211.110 (Hong Kong
+		 China)
 		64.211.144.160 (Brazil)
 		69.174.57.160 (Canada)
 		207.226.132.110 (Japan)
-		Meeting ID: 653 272 552
+		Meeting ID: 969 8127 2574
 		
 		Join by Skype for Business
-		https://cornell.zoom.us/skype/653272552
+		https://cornell.zoom.us/skype/96981272574
+
 	
 ## Prayer
 	
@@ -140,7 +153,7 @@
 
 - Church
 
-		. Annual Meeting Joint Worship Service: Please pray for the online church annual meeting and the joint service of two congregations at 10:30 AM this coming Sunday, 4/26. The zoom ID is 611-908-9970. Pastor Paul will preach on “How to Have Unity within Diversity” from Romans 15: 1-7.  Pray for everyone who will serve in this service. May it be an uplifting worship service that brings glory to God and joy to His people. Also pray that our church members will come early (before 10:30 AM) and with heart prepared for vote in the meeting.
+		Annual Meeting Joint Worship Service: Please pray for the online church annual meeting and the joint service of two congregations at 10:30 AM this coming Sunday, 4/26. The zoom ID is 611-908-9970. Pastor Paul will preach on “How to Have Unity within Diversity” from Romans 15: 1-7.  Pray for everyone who will serve in this service. May it be an uplifting worship service that brings glory to God and joy to His people. Also pray that our church members will come early (before 10:30 AM) and with heart prepared for vote in the meeting.
 
 		2. Bible Read-a-thon: The current season of Bible Read-a-thon will end on 4/30, and there is still a week left. Pray that many will be able to finish reading all the chapters before the deadline. Pray that everyone will make serious effort to build up the habit of daily Bible reading in the following six months, whether through our church’s Bible Read-a-thon or other reading plan.
 		
