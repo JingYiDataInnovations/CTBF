@@ -1,5 +1,5 @@
 
-# FICCC CTBF Weekly Newsletter (4/20/2020 - 4/26/2020)
+# FICCC CTBF Weekly Newsletter (4/27/2020 - 5/3/2020)
 
 
 - 讲员: 柏有成老师
