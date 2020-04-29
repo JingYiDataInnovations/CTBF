@@ -2,12 +2,11 @@
 # FICCC CTBF Weekly Newsletter (4/20/2020 - 4/26/2020)
 
 
-- **讲员**: 柏有成老师
+- 讲员: 柏有成老师
 - 时间：五月一日（Friday）
 - 主题：疫立不摇--风雨中的宁静
 - Zoom meeting starts at **7：30 pm on Friday:**
-		
-		zoom meeting ID: 914-0524-6988
+- **zoom meeting ID**: 914-0524-6988
 
 ![](https://blogs.cornell.edu/jingyi/files/2020/04/WeChat-Image_20200428220535.jpg)
 
@@ -36,8 +35,7 @@
 		周四中午12-12:30pm祷告，https://cornell.zoom.us/j/2901281918.
 		
 - **Saturday prayer meeting at 7:30 pm:**
-	
-		Jing Yi is inviting you to a scheduled Zoom meeting.
+
 
 		Topic: CTBF Prayer Meeting
 		Time: This is a recurring meeting Meet anytime
@@ -95,37 +93,44 @@
 	
 - Missions/World
 		
-		1) Pray for FICCC’s Mission Committee as it meets on April 23: The Mission Committee at FICCC will be holding it twice-annual meeting next week. Pray for God to lead members of the committee as they seeks God’s will for how FICCC should support God’s work around the world. Especially ask that the Lord grant wisdom to discern which needs are priority and which can be left to later in light of the challenges that the current pandemic has brought. May our mission funds yield maximum fruit and bring glory to God.
+		1) Pray for God to use missionaries in Bolivia to help during coronavirus crisis: FICCC member Dae-Guang Kim grew up in a Korean missionary family that serves in Bolivia. He recently learned from his father that the harsh coronavirus lockdown in Bolivia has created great hardship for many people, especially those in the lower classes. Quite a few people are unable to get enough food, which has led to desperation and even suicides, while abuse and violence in families has skyrocketed. Pray for God to have mercy on Bolivia, and to use Dae-Guang’s father and their ministry in the country to bring practical help and the hope of the gospel to many in great need.
 
-		2) Pray for Zhang Tao and Yingyun who just had their third child Hannah: Praise God that Yingyun had a smooth delivery of their third daughter! Pray for Zhang Tao as he has less than two weeks to finish up his final semester of study at Gordon-Conwell and is at home with the whole family due to the coronavirus. He and Yingyun are also preparing to return to China soon and need to apply for a visa for their daughter, but it has been impossible to go to the Chinese consulate in New York City to do that because of the lockdown. Let’s ask the Lord to open a door for Zhang Tao to apply for the visa and be able to return to China and resume his church ministry there, this time as a full-time pastor.
+		2) Pray for Zhang Tao and Yingyun as they seek God’s leading for their next step: Praise God that Yingyun had a smooth delivery of their third daughter in March! Tao is about to finish his theological study at Gordon-Conwell Seminary and he and his family are seeking the Lord about their next step. Tao plans to go back to China to be a pastor, but he needs to get a visa from the Chinese embassy in New York for his newborn daughter before he can do so, which has not been possible because of the coronavirus situation. He is now considering possibly finding a position as an intern at a Chinese church in the US for a year before heading back. Let’s pray for God to bless Tao and Yingyun’s new daughter, to grant Tao grace to finish his last term of study well, and to give them clear guidance concerning their next step.
 		
-		3) Pray for God to use the “Power Over Fear” app that Song Ye has helped translate: Song Ye is serving with Cru this year at the group’s headquarters in Orlando doing digital ministry. Recently, he has helped to translate Cru’s Power Over Fear app (which is aimed at non-Christians) into Chinese and thousands have already downloaded it. Pray that it will get broad use in China, especially in the midst of the coronavirus outbreak, and lead many people to faith in Christ. Let’s also pray for God’s blessing on Ye as he serves with Cru, and as he makes plans for what comes next.
+		3) Coronavirus Pandemic:  The coronavirus pandemic may be the biggest worldwide crisis of our generation.  In our reaction to this crisis, may we follow the Lord's guidance to pray, "Thine kingdom come, they will be done on earth as it is in heaven," and "Not my will, but Your's be done."  May we pray that God will bring good out of the suffering and that revival will break out as people consider their mortality.  In Psalm 41:1, King David writes, "Blessed are those who have regard for the weak; the Lord delivers them in times of trouble."  May the crisis motivate those who are blessed with strength to help the weak. Pray for researchers to find cures for disease, government leaders to make wise decisions to save lives and jobs, educators to help their students learn, the wealthy to be generous to the poor, and spiritual leaders to counsel the depressed and lead them to the Lord.
 		
-		4) Coronavirus Pandemic:  The coronavirus pandemic may be the biggest worldwide crisis of our generation.  In our reaction to this crisis, may we follow the Lord's guidance to pray, "Thine kingdom come, they will be done on earth as it is in heaven," and "Not my will, but Your's be done."  May we pray that God will bring good out of the suffering and that revival will break out as people consider their mortality.  In Psalm 41:1, King David writes, "Blessed are those who have regard for the weak; the Lord delivers them in times of trouble."  May the crisis motivate those who are blessed with strength to help the weak. Pray for researchers to find cures for disease, government leaders to make wise decisions to save lives and jobs, educators to help their students learn, the wealthy to be generous to the poor, and spiritual leaders to counsel the depressed and lead them to the Lord.
-		
+				
 
 
 
 - Church
 
-		Annual Meeting Joint Worship Service: Please pray for the online church annual meeting and the joint service of two congregations at 10:30 AM this coming Sunday, 4/26. The zoom ID is 611-908-9970. Pastor Paul will preach on “How to Have Unity within Diversity” from Romans 15: 1-7.  Pray for everyone who will serve in this service. May it be an uplifting worship service that brings glory to God and joy to His people. Also pray that our church members will come early (before 10:30 AM) and with heart prepared for vote in the meeting.
+		1. Praise: Annual Meeting Joint Worship Service: Praise the Lord that our two congregations had an uplifting joint service on Sunday and all voting items were smoothly passed in the annual meeting. 
 
-		2. Bible Read-a-thon: The current season of Bible Read-a-thon will end on 4/30, and there is still a week left. Pray that many will be able to finish reading all the chapters before the deadline. Pray that everyone will make serious effort to build up the habit of daily Bible reading in the following six months, whether through our church’s Bible Read-a-thon or other reading plan.
+		2. Governing Board Meeting: This Saturday Morning: Pray for the board meeting at 9:30 – 11:00 am at church this Saturday, 5/2. All current and new board members will attend this meeting. Major issues normally discussed in the May meeting are: 1) Welcoming new board members and elect new chairperson; 2) major changes and challenges in the next 12 months. Let us take this opportunity to pray for all the deacons, elders, pastors and their families. Pray for their personal relationship with God and with their family members, their growth in Christ, their ministries, and their studies or works. Pray especially for new board member who now assume new responsibilities: Mancang Dong (FF-Canaan) as Elder, Jianhua Chen(CCCF) as Elder, Jocelyn Bibert as English Ministry Deacon;  Victor Chen As Youth Ministry Deacon,  and Dae Guang Chung Kim as Board Secretary Deacon.
 		
 		3. All Church ministries online: Continue to pray that Pastor Paul and Pastor Tang will learn to effectively preach online.  Pray that many people will use their extra time to participate in our online prayer meetings, Bible studies and fellowship meetings.  Pray for unchurched people to invite to participate in these online ministries.  
 		
 		4. Registration for Seminary Extension online Class on Bible Ethics: This year  Dr Peter Chow, the former president of CES, will teach the online class on Bible Ethics from June 6 to June 10  It’s a great opportunity to learn from an experienced teacher and gain great insights on Christian life  that most people find it difficult to study by self. Pray that many church members will decide to take the class and register early.
 		
+		5. Brother Yeou-Cherng Bor’s Speaking in CCCF and Basil this Friday: Brother Yeou-Cherng Bor, the director of AFC and alumni of our church, will  give a special message on  coronavirus pandemic in  CCCF and Basil joint meeting  on Friday night.  Let us invite our friends to come. Please pray for his sermon preparation.
+		
+		6. Worship Service: Pray for the combined worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+		a. Speaker: Rev. Bin Tang will preach in the Combined Worship service on “Seek Holiness Through the Holy Sprite” from 1 Thessalonians 4: 1-12.  Pastor Paul will preach in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
+		b. Communion Service: communion will be served in both online worship services.  Pray for Pastor Tang and Pastor Paul that they will be able to officiate the services in a way that draws people to worship Christ for His great sacrifice.  Pray that members will obtain the bread and the grape juice or wine ahead of time, so that they will be able to participate in the service.
+		
 				
+						
 				
 
 
 
 - Individuals
 	
-		1. Jie Pei ’s B-Exam This Friday: Sister Jie Pei will take online  B-exam (her doctoral defense) this Friday. Let us support her with prayer.
-
-		2. Students Who Are Moving Away: Many students in our church will soon move away in the next few months.  Some have to complete major thesis or project soon.  Some are still looking for jobs or waiting for the result of graduate school applications.  Let us remember their needs in our prayers.
+		1. Praise! – Jie Pei Passed Her B-Exam: Thank you all for the prayer. Jie Pei  successfully passed her B-exam (his doctoral defense) last Friday.
 		
-		3. Personal Relationship with God: It’s inevitable that everyone will experience some struggles in life, especially in this year’s stressful and scared environment. and there is no quick solution or simple fix.  What matters the most is that we stay close to God and ask Him to help us maintain healthy relationship with Him and with people around us.  Let us pray for ourselves and for people who are facing struggles.
+		2. Pray for all the students who are graduating this year: 
+		 Pray for their smooth transition, adjustment to the new environments, and their spiritual growth. May God provide all of them good spiritual homes when they move to new places. Also pray for those who are waiting for God’s guidance in future direction.
+		
+		3. Final Exams: Pray for the undergraduate and graduate students in the two congregations, as they face their final examinations and deadlines. May God grant them good health, strength and wisdom to do the best that they can.
 		
