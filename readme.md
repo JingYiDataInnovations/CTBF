@@ -9,8 +9,8 @@
 		
 		zoom meeting ID: 914-0524-6988
 
+![](https://blogs.cornell.edu/jingyi/files/2020/04/WeChat-Image_20200428220535.jpg)
 
-![](https://www.dropbox.com/s/e8iu5qhcaxkhyfi/WeChat%20Image_20200428220535.jpg?dl=0)
 
 
 # Previous Newsletter
