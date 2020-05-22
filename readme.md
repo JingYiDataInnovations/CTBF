@@ -1,5 +1,5 @@
 
-# FICCC CTBF Weekly Newsletter (5/11/2020 - 5/17/2020)
+# FICCC CTBF Weekly Newsletter (5/18/2020 - 5/24/2020)
 
 - **查经主题:** 婚姻辅导
 - **带领/Lead:** David and Mavis
