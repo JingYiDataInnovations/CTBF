@@ -1,5 +1,5 @@
 
-# FICCC CTBF Weekly Newsletter (5/18/2020 - 5/24/2020)
+# FICCC CTBF Weekly Newsletter (5/24/2020 - 5/31/2020)
 
 - **查经主题/ Topic of Bible study**: 末世的征兆; 路加 21：5-27 
 - **带领/Lead**: Mao Huang
