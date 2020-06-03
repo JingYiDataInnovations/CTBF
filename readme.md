@@ -79,7 +79,7 @@
 - **祷告主题：为疫情祷告**
 - **Workday prayer meetings:**
 		
-		周一中午12-12:30pm祷告，https://cornell.zoom.us/j/2901281918.
+	
 		
 		周三早上7点的祷告，zoom https://cornell.zoom.us/j/2901281918. 
 		
