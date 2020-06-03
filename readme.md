@@ -81,9 +81,9 @@
 		
 	
 		
-		周三早上7点的祷告，zoom https://cornell.zoom.us/j/2901281918. 
+		周三8pm的祷告会，Zoom ID: https://cornell.zoom.us/j/2901281918 Password: icutwo。
 		
-		周四中午12-12:30pm祷告，https://cornell.zoom.us/j/2901281918.
+		周四中午12-12:30pm祷告，Zoom ID: 9517088944，Password： 772096
 		
 - **Saturday prayer meeting at 7:30 pm:**
 
