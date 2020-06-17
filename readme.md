@@ -171,6 +171,7 @@
 
 
 - Individuals
+
 		1.	Fathers: As we will celebrate Father’s Day on Sunday, let us pray for our own fathers and all the fathers in our church, including brother whose wife is pregnant.  Also pray for visiting parents who have arrived or will be arriving in Ithaca soon.
 		
 		2.	High School Graduates: Normally, June is the month when High School seniors celebrate their graduation. This is an unusual year that they would not experience in-person High School Commencement. Pray for the following FICCC High School graduates: Alice & Bella Hu, Anne Wang, Kelvin Wang ,  LeLand  Xu. 
