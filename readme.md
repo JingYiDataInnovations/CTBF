@@ -1,8 +1,8 @@
 
-# FICCC CTBF Weekly Newsletter (6/8/2020 - 6/14/2020)
+# FICCC CTBF Weekly Newsletter (6/15/2020 - 6/21/2020)
 
-- **查经主题/ Topic of Bible study**: 钉十字架; 路加 23：32-49
-- **带领/Lead**: Fan Yang
+- **查经主题/ Topic of Bible study**: 以马忤斯路上; 路加24：13-35
+- **带领/Lead**: Xin Huang
 		
 - Zoom meeting starts at **7 pm on Friday:**
 		
@@ -75,6 +75,7 @@
 - [5/11/2020 - 5/17/2020](5_11_2020)
 - [5/18/2020 - 5/31/2020](5_24_2020_2)
 - [6/1/2020 - 6/7/2020](6_1_2020)
+- [6/8/2020 - 6/14/2020](6_8_2020)
 # Prayer meeting:
 
 - **祷告主题：为疫情祷告**
@@ -144,43 +145,40 @@
 
 - Missions/World
 		
-		Guang Chong Kim. He recently reported that the funds are being used to “proclaim the gospel, provide food for the hungry, and provide healthcare to those much in need.” He also said that there are many people dying of COVID 19, including members of the churches that are part of the network established by his parents, and even a couple of pastors of these churches. Please pray for God’s comfort to the church families of those who have lost relatives, and especially the families of the pastors. Pray also that God would raise up more workers for the harvest field in Bolivia, and would continue to use the pandemic to bring many souls to Christ.
-
-		2. Pray for Song Ye as he finishes his time of ministry with Cru in Orlando: Song Ye has spent the past year doing digital ministry with Cru at their headquarters in Orlando, and was able to keep working from home during the pandemic. His internship position at Cru was originally scheduled to finish up on May 1, but he has extended the time until the end of July. He has also begun to look for employment, but not surprisingly, it has been tough finding opportunities. Pray for Ye to finish his time at Cru well and to continue to bless many through the digital tools he has been working on. Let’s also ask the Lord to open a door for Ye to find useful work that utilizes his gifts and training after his internship ends.
+		1)	Pray that David and Susan could attend their son Ike’s wedding: David and Susan are based in a country in Asia near China and have been training Chinese Christians to engage in cross-cultural missions. Currently they are still under lockdown. They have airplane tickets to attend their son Ike’s wedding in the US, which is scheduled for July 11, but the airport is still closed. Pray that God might graciously open the door for them to fly to the US and be part of the wedding.
 		
-		3. Reopening after the lockdown:  Pray for wisdom for government leaders in deciding when to allow citizens to return to their work and other activities.  Pray that their decisions will result in the economy being restored as soon as possible while a minimum number of people getting sick.  Pray that citizens will be wise in their practices to help minimize health problems.  Pray also for wisdom for our church leaders as they consider different factors to decide when to reopen our church's worship services and other ministries.  Pray that they will set up procedures so that people can worship and fellowship with each other while keeping physically safe.
+		2)	Pray for Zhang Mingzhang and his wife Xiuhui ministering in rural Taiwan: FICCC has recently begun supporting Zhang Mingzhang and his wife Xiuhui, who are former members of our church now doing full-time ministry in rural Taiwan, which is a difficult mission field. Pray that God continues to give them favor in the village where they minister and doors of opportunity to share the gospel. Pray especially that the Lord would use the tutoring school they have started to turn the hearts of the students to Christ.
 		
-		
-										
+		3)	Reopening after the lockdown:  Pray for wisdom for government leaders in deciding when to allow citizens to return to their work and other activities.  Pray that their decisions will result in the economy being restored as soon as possible while a minimum number of people getting sick.  Pray that citizens will be wise in their practices to help minimize health problems.  Pray also for wisdom for our church leaders as they consider different factors to decide when to reopen our church's worship services and other ministries.  Pray that they will set up procedures so that people can worship and fellowship with each other while keeping physically safe. Pray for God's continued guidance from our leaders as Tompkins County entered Phase 3 reopening on Friday June 12.
+				
+												
 		
 
 
 - Church
 
-		1. Praise - Seminary Extension Class on Bible Ethics:  Praise the Lord, the seminary extension class on “Bible Ethics” had a good start on Saturday, with 38 people attending, 12 of them  from our church. Please pray for Dr. Peter Chow and all the students, and ask God to bless their time of learning the Word of God.
+		1.	Praise - Seminary Extension Class on Bible Ethics: Praise the Lord for a good week of seminary extension class on “Bible Ethics”. 38 brothers and sisters (12 from our church) attended the class and were greatly blessed by the edifying teaching of Dr. Peter Chow. Pray that all will complete the assignments and get the course credit.
+
+		2.	Fellowship Leader training: There will be a four-week fellowship leader training starting on this coming Sunday (6/21), between 9:15 am to 10:45 am. Pray that all the leaders of the fellowships will be prepared to be able to attend the training. The Zoom ID is 6119089970, and the password is 2020.
 		
-		2. Pray for Board Meeting: The elders, deacons, and pastors will have a scheduled board meeting on this coming Saturday. One of the important issues to discuss is the church reopening. Pray and ask God to give them wisdom and guidance and to have unity in making decisions in church reopening and other issues.
+		3.	New Fellowship Leaders: Praise the Lord that in the past few weeks several members have agreed to take on leadership role and responsibility. Kairui Sun is the new general coordinator of  Basil; Dong Wang and  Miao Huang  are  the new  coordinators of CTBF Jiahe Chen is the new general coordinator of CCCF. Let us support them with prayers.
 		
-		3. Fellowship Groups during Summer Time: Pray for God’s guidance, protection, and blessing upon all fellowship groups during summer time.  Pray that they will all be able to continue to attract more new comers and improve the quality of their weekly meetings.
+		4.	Personal Relationship with God: It’s inevitable that everyone will experience some struggles in life, especially in a very stressful environment. Sometimes there is no quick solution or simple fix.  What matters the most is that we stay close to God and ask Him to help us maintain healthy relationship with Him and with people around us.  Let us pray for ourselves and for people who are facing struggles.
 		
-		4. Personal Relationship with God: It’s inevitable that everyone will experience some struggles in life, especially in a very stressful environment. Sometimes there is no quick solution or simple fix.  What matters the most is that we stay close to God and ask Him to help us maintain healthy relationship with Him and with people around us.  Let us pray for ourselves and for people who are facing struggles.
-		
-		5. Our Daily Walk with God and Loving Relationship within Each family: Pray for brothers and sisters in our church that God may give all of us the desire to draw near to Him so that we would choose to get up earlier than usual during summer time and spend more quiet time with God through morning devotion, instead of staying up late spending much time on internet or computer games. Pray that our hearts may be filled with God’s love so that we may have the ability to love more and forgive more.
-		
-		6. English Congregation: This summer starting this Friday (6/12), English Congregation will have a College Bible Study every Friday from 7:00-8:30 pm.  The topic of the Bible study is "Experiencing God in College."  For many college students, a relationship with God is more theoretical than it is experiential.  As a result, Christianity becomes drab and irrelevant - rather than dynamic and meaningful.  And so, though our Bible study will be deeply rooted in Scripture, the emphasis of the Bible study will be for college students to experience God's love for them and let that love impact the way they experience college. Pray for God’s guideline and high attending rate.
-		
-		7. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-		a. Speaker:  Rev. Derrick Tan will preach in the Chinese Worship service on “Contemporary Art” from Romans 11:33-36, Ephesians 2:10.   Pastor Paul will preach in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
-		b. The people Who Serve: Pray for everyone who will be serving in the worship service.
-		
+		5.	Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+		a.	Speaker:  Rev. Bin Tang will preach in the Chinese Worship service on “Learn to be a good father” from Malachi 4:5-6 and Ephesians 6:1-4. Pastor Paul will preach in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
+		b.	The people Who Serve: Pray for everyone who will be serving in the worship service.
 
 
 - Individuals
-		1. Singles: Let us pray for God’s guidance upon many single students in the area of relationship. Pray that Christians will honor God by firmly holding to biblical principles. Let us also pray that many seekers will entrust their future to God by faith, become members of God’s family, and build Christ-centered families with godly spouses that God provide for them.
+		1.	Fathers: As we will celebrate Father’s Day on Sunday, let us pray for our own fathers and all the fathers in our church, including brother whose wife is pregnant.  Also pray for visiting parents who have arrived or will be arriving in Ithaca soon.
 		
-		2. Preparation for Moving: A few families will move away this summer or early Fall, e.g. Fan Yang/Yuling Huang,  Yimeng Sun, Jie Pei etc.  Pray for God’s guidance upon them in making all the preparatio
+		2.	High School Graduates: Normally, June is the month when High School seniors celebrate their graduation. This is an unusual year that they would not experience in-person High School Commencement. Pray for the following FICCC High School graduates: Alice & Bella Hu, Anne Wang, Kelvin Wang ,  LeLand  Xu. 
 		
+		3.	Fan Yang’s Phd .Defense:  This Wednesday. Brother Fan Yang (CTBF) will take online his  doctoral defense this Wednesday.  Let us support him with prayer.
 		
+		4.	Jing Feng’s Travel to China: Jing Feng (Basil) will have a more than 30hours  trip to China on June 19.  Please support her with prayers.
+				
 		
 				
 
