@@ -1,8 +1,8 @@
 
 # FICCC CTBF Weekly Newsletter (6/15/2020 - 6/21/2020)
 
-- **查经主题/ Topic of Bible study**: 以马忤斯路上; 路加24：13-35
-- **带领/Lead**: Xin Huang
+- **查经主题/ Topic of Bible study**: 神籍着他的儿子说话; 希伯来书 1:1-14
+- **带领/Lead**: Fan Yang
 		
 - Zoom meeting starts at **7 pm on Friday:**
 		
@@ -76,6 +76,7 @@
 - [5/18/2020 - 5/31/2020](5_24_2020_2)
 - [6/1/2020 - 6/7/2020](6_1_2020)
 - [6/8/2020 - 6/14/2020](6_8_2020)
+- [6/15/2020 - 6/21/2020](6_15_2020)
 # Prayer meeting:
 
 - **祷告主题：为疫情祷告**
@@ -145,41 +146,50 @@
 
 - Missions/World
 		
-		1)	Pray that David and Susan could attend their son Ike’s wedding: David and Susan are based in a country in Asia near China and have been training Chinese Christians to engage in cross-cultural missions. Currently they are still under lockdown. They have airplane tickets to attend their son Ike’s wedding in the US, which is scheduled for July 11, but the airport is still closed. Pray that God might graciously open the door for them to fly to the US and be part of the wedding.
+		1) Pray for Stuart and Peggy in their Bible translation work: Stuart and Peggy are now back in the US and will be based here as they continue their Bible translation ministry. Pray that God would grant Stuart reliable email communication with key colleagues when doing consultant checking sessions on Bible translations. Pray also that the Lord would bless Peggy’s current training to be a Bible translation consultant, including getting all of the necessary hardware and software set up properly to engage in the training.
+
+		2) Pray for God’s blessing as David and Susan attend their son’s wedding: Praise God for opening the door to allow David and Susan to fly to the US and be present for their son’s wedding. Let’s pray that God blesses the wedding on July 11 with His gracious presence, as well as the time that David and Susan have with family and friends.
+		 
+		3) Pray for the Lord to use FICCC to reach Chinese living in Ithaca: There are a significant number of Chinese people living in Ithaca who are not Christians, some of whom are open to the gospel. Pray that as society gradually reopens, God might draw these people to our church and to faith in Christ. Pray as well that members of FICCC who come into contact with these people would be sensitive to the Spirit’s leading and invite them to join a fellowship meeting or Sunday worship.
 		
-		2)	Pray for Zhang Mingzhang and his wife Xiuhui ministering in rural Taiwan: FICCC has recently begun supporting Zhang Mingzhang and his wife Xiuhui, who are former members of our church now doing full-time ministry in rural Taiwan, which is a difficult mission field. Pray that God continues to give them favor in the village where they minister and doors of opportunity to share the gospel. Pray especially that the Lord would use the tutoring school they have started to turn the hearts of the students to Christ.
-		
-		3)	Reopening after the lockdown:  Pray for wisdom for government leaders in deciding when to allow citizens to return to their work and other activities.  Pray that their decisions will result in the economy being restored as soon as possible while a minimum number of people getting sick.  Pray that citizens will be wise in their practices to help minimize health problems.  Pray also for wisdom for our church leaders as they consider different factors to decide when to reopen our church's worship services and other ministries.  Pray that they will set up procedures so that people can worship and fellowship with each other while keeping physically safe. Pray for God's continued guidance from our leaders as Tompkins County entered Phase 3 reopening on Friday June 12.
-				
-												
+						
+														
 		
 
 
 - Church
 
-		1.	Praise - Seminary Extension Class on Bible Ethics: Praise the Lord for a good week of seminary extension class on “Bible Ethics”. 38 brothers and sisters (12 from our church) attended the class and were greatly blessed by the edifying teaching of Dr. Peter Chow. Pray that all will complete the assignments and get the course credit.
-
-		2.	Fellowship Leader training: There will be a four-week fellowship leader training starting on this coming Sunday (6/21), between 9:15 am to 10:45 am. Pray that all the leaders of the fellowships will be prepared to be able to attend the training. The Zoom ID is 6119089970, and the password is 2020.
+			1. Church reopening:  Our church board members will meet on July 18 to discuss reopening the church.  On one hand, it would be much easier to reach out to new students if our church worship services and discipleship groups could meet in our church building.  On the other hand, we want people to remain safe.  Pray that our board members will be both wise and bold in following God's guidance for the church reopening.
 		
-		3.	New Fellowship Leaders: Praise the Lord that in the past few weeks several members have agreed to take on leadership role and responsibility. Kairui Sun is the new general coordinator of  Basil; Dong Wang and  Miao Huang  are  the new  coordinators of CTBF Jiahe Chen is the new general coordinator of CCCF. Let us support them with prayers.
-		
-		4.	Personal Relationship with God: It’s inevitable that everyone will experience some struggles in life, especially in a very stressful environment. Sometimes there is no quick solution or simple fix.  What matters the most is that we stay close to God and ask Him to help us maintain healthy relationship with Him and with people around us.  Let us pray for ourselves and for people who are facing struggles.
-		
-		5.	Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-		a.	Speaker:  Rev. Bin Tang will preach in the Chinese Worship service on “Learn to be a good father” from Malachi 4:5-6 and Ephesians 6:1-4. Pastor Paul will preach in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
-		b.	The people Who Serve: Pray for everyone who will be serving in the worship service.
+			2. Support and Build up One Another: One tactic the Devil often uses to bring down the morale of a church is to make the church coworkers busy with their own ministries and lose energy and interest to support one another. May God give all of us spiritual insight to give Satan no room for success. Pray and ask God to help us to on the one hand maintain very good balance for our own lives and on the other have the heart to support and to empower one another. 
+			
+			3. New Students: Even though most of the new students won’t arrive until August, let us pray for a few things.
+			a. Our willingness and readiness to help and serve new students from overseas, including airport pick-up, up to three nights of temporary housing, rides for grocery shopping and finding apartment.
+			b. Their willingness to join our fellowship and church:  Pray and ask God to bring 
+			Many English-speaking students to our English worship service, many Mandarin-speaking students to CCCF, and many Mandarin-speaking families to our family fellowship groups
+			
+			4. English Congregation: 
+			    I College Bible Study:  Our College Bible Study is going through a series entitled, "Experiencing God in College."  For many students, God can be more of a concept than a reality.  Pray that this Bible study will help college students experience God.  Pray for the teachers who include Pastor Paul and two grad students - Felicia Setiono and Mark Dalthrop that they will love the college students, that the lessons will be biblical and practical, and that they will give good guidance to the students.  13 college students have attended at least once.  Pray that they will prioritize attendance and invite friends.  Pray that the students who grew up in our church, but have not yet joined, will also join the Bible study. 
+			    II Shepherd/Disciplers:  The Shepherd/Disciplers for next school year include: Andika Gunadi, Emma Bogdanich, Hildy Epp, Jason Chen, Jasper Liang, Liam Riley and Rebecca Dai.  They will have a meeting in July to catch up with each other, discuss a book on disciple making, and to plan for the next semester.  Pray that they will work together as a team and that they will grow spiritually during the summer so that they can lead well. 
+			    III One-on-one discipleship:  Pastor Paul recently went to a conference on discipleship and attending a workshop put on Small Circle Ministries on one-on-one discipleship.  The curriculum is intentional, yet very relational.  He is now discipling five college men, and Andika Guandi is discipling two collge men.  Praise God that these men are responding well to the discipleship.  Pray that that these me will be trained well to love God and ultimately to disciple others.  Pray that Pastor Paul will be able to recruit several other local residents and grad students for one-on-one discipleship for our college students.  Pray that we will develop a disciple making culture in our church.
+			
+			5. Youth Ministry:  Thank God for our youth workers that include Victor Chen, Stephanie Deng, Aaron Hui, Attilus Leung, Aaron Hui, Hildy Epp and Pastor Paul. Victor and Stephanie have continued to help with the online ministry even though they returned to their parents' house for the summer.  Pray that their love for the Lord will be contagious and that the youth will love the Lord as well.  Pray that the youth will be proactive rather than passive.  Pray that in discussions they will give their input rather than wait until the leader asks them directly for questions, that they will volunteer to pray and they will encourage each other to grow spiritually.
+			.
+			6. Children Ministry:  Let us first give thanks to God and to all the teachers/helpers who have served faithfully in our Children Ministry. Pray that both the teachers/helpers and the children will continue to experience personal spiritual growth through Children Sunday School every Sunday.. 
+			
+			7. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+			a. Speaker:  Rev. Bin Tang wiill preach in the Chinese Worship service on “God's Comfort Comes Upon Us” from Isaiah 1: 1-11. Pastor Paul will preach in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+			b. Communion: Pray for our readiness to take the communion. 
+			c. The people Who Serve: Pray for everyone who will be serving in the worship service.
 
 
 - Individuals
+		1. Sister Mavis Ng:  Mavis felldown and injured herself, fracturing several face bone last week. Praise God that she didn’t need surgery. Please pray for  her full recovery.
+		
+		2. Barwick’s family back Ithaca on Friday:  John and Panle with their two kids are coming back Ithaca from Singapore on 7/2.  Please Pray for a safe and smooth travel for them. And Pray for the health and adjustment of their two little kids.
+		
+		3. Students Working on the Completion of Their Academic Studies: A few students in our church need to finish their major projects or courses for their degree program before a certain deadline soon. Pray that they will seek guidance from God and receive all the wisdom and strength they need. 
+		
 
-		1.	Fathers: As we will celebrate Father’s Day on Sunday, let us pray for our own fathers and all the fathers in our church, including brother whose wife is pregnant.  Also pray for visiting parents who have arrived or will be arriving in Ithaca soon.
-		
-		2.	High School Graduates: Normally, June is the month when High School seniors celebrate their graduation. This is an unusual year that they would not experience in-person High School Commencement. Pray for the following FICCC High School graduates: Alice & Bella Hu, Anne Wang, Kelvin Wang ,  LeLand  Xu. 
-		
-		3.	Fan Yang’s Phd .Defense:  This Wednesday. Brother Fan Yang (CTBF) will take online his  doctoral defense this Wednesday.  Let us support him with prayer.
-		
-		4.	Jing Feng’s Travel to China: Jing Feng (Basil) will have a more than 30hours  trip to China on June 19.  Please support her with prayers.
-				
-		
-				
+
 
