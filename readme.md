@@ -1,5 +1,5 @@
 
-# FICCC CTBF Weekly Newsletter (6/15/2020 - 6/21/2020)
+# FICCC CTBF Weekly Newsletter (6/21/2020 - 6/27/2020)
 
 - **查经主题/ Topic of Bible study**: 神籍着他的儿子说话; 希伯来书 1:1-14
 - **带领/Lead**: Fan Yang
