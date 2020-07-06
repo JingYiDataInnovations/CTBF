@@ -79,7 +79,7 @@
 - [6/15/2020 - 6/21/2020](6_15_2020)
 # Prayer meeting:
 	
-- **Saturday prayer meeting at 7:30 pm:**
+- **Saturday prayer meeting at 8:00 pm:**
 
 		Password: 123
 		Topic: CTBF Prayer Meeting
