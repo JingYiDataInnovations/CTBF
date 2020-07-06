@@ -78,15 +78,7 @@
 - [6/8/2020 - 6/14/2020](6_8_2020)
 - [6/15/2020 - 6/21/2020](6_15_2020)
 # Prayer meeting:
-
-- **祷告主题：为疫情祷告**
-- **Workday prayer meetings:**
-		
 	
-		
-		周三8pm的祷告会，Zoom ID: https://cornell.zoom.us/j/2901281918 Password: icutwo。
-		
-		
 - **Saturday prayer meeting at 7:30 pm:**
 
 		Password: 123
