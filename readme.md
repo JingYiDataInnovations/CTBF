@@ -1,8 +1,8 @@
 
-# FICCC CTBF Weekly Newsletter (6/21/2020 - 6/27/2020)
+# FICCC CTBF Weekly Newsletter (7/6/2020 - 7/12/2020)
 
-- **查经主题/ Topic of Bible study**: 神籍着他的儿子说话; 希伯来书 1:1-14
-- **带领/Lead**: Fan Yang
+- **查经主题/ Topic of Bible study**: Date; 希伯来书 2:1-18
+- **带领/Lead**: Haokun Sun
 		
 - Zoom meeting starts at **7 pm on Friday:**
 		
@@ -77,6 +77,7 @@
 - [6/1/2020 - 6/7/2020](6_1_2020)
 - [6/8/2020 - 6/14/2020](6_8_2020)
 - [6/15/2020 - 6/21/2020](6_15_2020)
+- [6/22/2020 - 7/5/2020](6_22_2020)
 # Prayer meeting:
 	
 - **Saturday prayer meeting at 8:00 pm:**
@@ -138,50 +139,32 @@
 
 - Missions/World
 		
-		1) Pray for Stuart and Peggy in their Bible translation work: Stuart and Peggy are now back in the US and will be based here as they continue their Bible translation ministry. Pray that God would grant Stuart reliable email communication with key colleagues when doing consultant checking sessions on Bible translations. Pray also that the Lord would bless Peggy’s current training to be a Bible translation consultant, including getting all of the necessary hardware and software set up properly to engage in the training.
-
-		2) Pray for God’s blessing as David and Susan attend their son’s wedding: Praise God for opening the door to allow David and Susan to fly to the US and be present for their son’s wedding. Let’s pray that God blesses the wedding on July 11 with His gracious presence, as well as the time that David and Susan have with family and friends.
-		 
-		3) Pray for the Lord to use FICCC to reach Chinese living in Ithaca: There are a significant number of Chinese people living in Ithaca who are not Christians, some of whom are open to the gospel. Pray that as society gradually reopens, God might draw these people to our church and to faith in Christ. Pray as well that members of FICCC who come into contact with these people would be sensitive to the Spirit’s leading and invite them to join a fellowship meeting or Sunday worship.
+		1) Pray for Siu-Yuk and the Children of Promise career training center: Siu-Yuk helps to lead the Children of Promise ministry in East Asia, that helps people with physical and mental disabilities. This organization recently received funding from the local government to start a second career training center in the city where they are located. Pray that God will help Siu-Yuk and her coworkers to get this second center off to a good start, and would use it to open up natural opportunities to share the gospel.
+ 
+		2) Pray for God to bless the ministry of Second Wind Cottages in Ithaca: FICCC supports a Christian group in Ithaca called Second Wind Cottages that shares the gospel with homeless people and provides temporary housing for them in order to help them get back on their own feet. Pray that God blesses this ministry and uses it to draw many needy souls to Christ, especially in the wake of the pandemic and increased risk of homelessness.							
 		
-						
-														
-		
-
 
 - Church
 
 			1. Church reopening:  Our church board members will meet on July 18 to discuss reopening the church.  On one hand, it would be much easier to reach out to new students if our church worship services and discipleship groups could meet in our church building.  On the other hand, we want people to remain safe.  Pray that our board members will be both wise and bold in following God's guidance for the church reopening.
-		
-			2. Support and Build up One Another: One tactic the Devil often uses to bring down the morale of a church is to make the church coworkers busy with their own ministries and lose energy and interest to support one another. May God give all of us spiritual insight to give Satan no room for success. Pray and ask God to help us to on the one hand maintain very good balance for our own lives and on the other have the heart to support and to empower one another. 
 			
-			3. New Students: Even though most of the new students won’t arrive until August, let us pray for a few things.
-			a. Our willingness and readiness to help and serve new students from overseas, including airport pick-up, up to three nights of temporary housing, rides for grocery shopping and finding apartment.
-			b. Their willingness to join our fellowship and church:  Pray and ask God to bring 
-			Many English-speaking students to our English worship service, many Mandarin-speaking students to CCCF, and many Mandarin-speaking families to our family fellowship groups
+			2. Our Daily Walk with God and Loving Relationship within Each family: Pray for brothers and sisters in our church that God may give all of us the desire to draw near to Him so that we would choose to get up earlier than usual during summer time and spend more quiet time with God through morning devotion, instead of staying up late spending much time on internet or computer games. Pray that our hearts may be filled with God’s love so that we may have the ability to love more and forgive more.
 			
-			4. English Congregation: 
-			    I College Bible Study:  Our College Bible Study is going through a series entitled, "Experiencing God in College."  For many students, God can be more of a concept than a reality.  Pray that this Bible study will help college students experience God.  Pray for the teachers who include Pastor Paul and two grad students - Felicia Setiono and Mark Dalthrop that they will love the college students, that the lessons will be biblical and practical, and that they will give good guidance to the students.  13 college students have attended at least once.  Pray that they will prioritize attendance and invite friends.  Pray that the students who grew up in our church, but have not yet joined, will also join the Bible study. 
-			    II Shepherd/Disciplers:  The Shepherd/Disciplers for next school year include: Andika Gunadi, Emma Bogdanich, Hildy Epp, Jason Chen, Jasper Liang, Liam Riley and Rebecca Dai.  They will have a meeting in July to catch up with each other, discuss a book on disciple making, and to plan for the next semester.  Pray that they will work together as a team and that they will grow spiritually during the summer so that they can lead well. 
-			    III One-on-one discipleship:  Pastor Paul recently went to a conference on discipleship and attending a workshop put on Small Circle Ministries on one-on-one discipleship.  The curriculum is intentional, yet very relational.  He is now discipling five college men, and Andika Guandi is discipling two collge men.  Praise God that these men are responding well to the discipleship.  Pray that that these me will be trained well to love God and ultimately to disciple others.  Pray that Pastor Paul will be able to recruit several other local residents and grad students for one-on-one discipleship for our college students.  Pray that we will develop a disciple making culture in our church.
+			3. The fellowship leader’s training class:  Praise the Lord, there are more than 10 coworkers from Fellowship groups taking the 4 time  online classes in past three weeks, there is last class will be this Sunday. Please pray all attenders can join the last class on time. 
 			
-			5. Youth Ministry:  Thank God for our youth workers that include Victor Chen, Stephanie Deng, Aaron Hui, Attilus Leung, Aaron Hui, Hildy Epp and Pastor Paul. Victor and Stephanie have continued to help with the online ministry even though they returned to their parents' house for the summer.  Pray that their love for the Lord will be contagious and that the youth will love the Lord as well.  Pray that the youth will be proactive rather than passive.  Pray that in discussions they will give their input rather than wait until the leader asks them directly for questions, that they will volunteer to pray and they will encourage each other to grow spiritually.
-			.
-			6. Children Ministry:  Let us first give thanks to God and to all the teachers/helpers who have served faithfully in our Children Ministry. Pray that both the teachers/helpers and the children will continue to experience personal spiritual growth through Children Sunday School every Sunday.. 
+			4. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+			a. Speaker:  Min. 朱憲奔 from Syracuse will preach in the Chinese Worship service on “Let the Whole World Know” from 1 Samuel 17: 31-49. Pastor Paul will preach in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+			b. The people Who Serve: Pray for everyone who will be serving in the worship service.
 			
-			7. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-			a. Speaker:  Rev. Bin Tang wiill preach in the Chinese Worship service on “God's Comfort Comes Upon Us” from Isaiah 1: 1-11. Pastor Paul will preach in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
-			b. Communion: Pray for our readiness to take the communion. 
-			c. The people Who Serve: Pray for everyone who will be serving in the worship service.
 
 
 - Individuals
-		1. Sister Mavis Ng:  Mavis felldown and injured herself, fracturing several face bone last week. Praise God that she didn’t need surgery. Please pray for  her full recovery.
-		
-		2. Barwick’s family back Ithaca on Friday:  John and Panle with their two kids are coming back Ithaca from Singapore on 7/2.  Please Pray for a safe and smooth travel for them. And Pray for the health and adjustment of their two little kids.
-		
-		3. Students Working on the Completion of Their Academic Studies: A few students in our church need to finish their major projects or courses for their degree program before a certain deadline soon. Pray that they will seek guidance from God and receive all the wisdom and strength they need. 
-		
 
+			1. Sister Yiwen Qin ’s A-Exam This Wednesday : Sister Yiwen Qin (CCCF) will take online  A-exam  this Wednesday(7/8). Let us support her with prayer.
+			
+			2. F-1 and M-1 Students and visiting scholars visa: On Monday ICE issued the guidance on international students and Exchange visitor program to instruct that students and scholars how to keep their staying in State according their online classes. please pray the cornelland IC students from China( specially for them in China for Summer break) have the wisdom to handle the special situation .  Pray that they will seek guidance from God and receive all the wisdom and strength they need.
+			
+			
+			
 
 
