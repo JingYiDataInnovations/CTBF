@@ -1,8 +1,8 @@
 
-# FICCC CTBF Weekly Newsletter (7/13/2020 - 7/18/2020)
+# FICCC CTBF Weekly Newsletter (7/20/2020 - 7/26/2020)
 
-- **查经主题/ Topic of Bible study**: 神子民的安息	; 希伯来书 3:1-19
-- **带领/Lead**: Jing Yi
+- **查经主题/ Topic of Bible study**: 竭力进入安息	; 希伯来书 4:1-13
+- **带领/Lead**: Mao Huang
 		
 - Zoom meeting starts at **7 pm on Friday:**
 		
@@ -79,6 +79,7 @@
 - [6/15/2020 - 6/21/2020](6_15_2020)
 - [6/22/2020 - 7/5/2020](6_22_2020)
 - [7/6/2020 - 7/12/2020](7_6_2020)
+- [7/13/2020 - 7/19/2020](7_13_2020)
 # Prayer meeting:
 	
 - **Saturday prayer meeting at 8:00 pm:**
@@ -140,35 +141,38 @@
 
 - Missions/World
 		
-		1) Pray for Abi Bernard as she prepares for a year-long mission in Africa:
-		Abi Bernard has been a faithful member of our English congregation for the past several years, first as an undergraduate student at Cornell (she graduated in December 2019) and these past six months as a full-time intern with Cru at Cornell. She is now preparing to serve with Cru for a year in the nation of Ivory Coast in Western Africa, where she will be reaching out to students. Pray that God guides her steps, as the current pandemic has created much uncertainty, and abundantly provides for all of her financial needs should He open the door for her to go, as seems likely. Let’s also ask the Lord to make Abi a channel of His saving grace to many needy souls in that country.
-		
-		2) Pray for Zhang Mingzhang and his wife Xiuhui ministering in rural Taiwan
-		FICCC has recently begun supporting Zhang Mingzhang and his wife Xiuhui, who are former members of our church now doing full-time ministry in rural Taiwan, which is a difficult mission field. Pray that God continues to give them favor in the village where they minister and doors of opportunity to share the gospel. Pray especially that the Lord would use the tutoring school they have started to turn the hearts of the students to Christ.
+		1) Pray for Stuart and Peggy as they prepare to move to Michigan: Stuart and Peggy are preparing to move back into their old house in Michigan. Pray that some renovation work they are currently having done would be completed prior to their arrival. Pray also that God would grant wisdom to know how to take care of moving furniture back upstairs from the basement, since they will be under quarantine once they arrive and therefore church friends won’t be able to help.
+
+		2) Pray for Lu Tsun-En’s theological study and dissertation writing:  Tsun-En works with Ambassadors for Christ, and is also studying for a Ph.D. in theology from Westminster Seminary. Pray that God would help Tsun-En find time to continue writing his dissertation, even with a busy ministry schedule, and that God would use his study to better equip him for ministry.
+		the hearts of the students to Christ.
 
 						
 		
 
 - Church
 
-			1. Church reopening:  Continue to pray for our church board meeting on July 18. The main purpose is to discuss reopening the church.  On one hand, it would be much easier to reach out to new students if our church worship services and discipleship groups could meet in our church building.  On the other hand, we want people to remain safe.  Pray that our board members will be both wise and bold in following God's guidance for the church reopening
+			1. Church Reopening: Due to the recent changes regarding COVID-19, the local government's policies, and Cornell University's requirements, our church board has decided to continue online worships and update related equipment. The church board will decide when to open our church for worship on 9/12 based on Cornell's situation. Please pray for the church's reopening. 
 
-			2. Governing Board Meeting: The elders, deacons, and pastors will have a scheduled  online board meeting on Saturday morning, 7/18 (9:30 AM – noon). Pray and ask God to give them wisdom and guidance.  Also pray for unity among them as they discuss important issue- reopening of Church.
+			2. Chinese Congregation Coworkers’ Meeting: The Chinese Congregation coworkers have a scheduled bi-monthly meeting at 1:30 PM online this coming Sunday. The most important issue is how to prepare  for welcoming and helping new students in the Pandemic and  how to organize the Fall EV Meeting. Pray that God will guide the proceeding of this bi-monthly meeting with His Spirit, and that this will be a time of wise and effective planning and blessed fellowship.
 			
-			3. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-			a. Speaker:  Rev. Bin Tang from Syracuse will preach in the Chinese Worship service on “God is Our Mighty Comforter” from Isaiah 40: 12-26. Pastor Paul will preach in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
-			b. The people Who Serve: Pray for everyone who will be serving in the worship service.
+			3. Evergreen Fellowship Monthly Meeting Online This Saturday: Evergreen will have their monthly meeting online this Saturday, 7/25, from 10 AM to noon, Pray for a good attendance and a good fellowship time.
+			
+			4. Our Spiritual Readiness: Every year, from mid-August to late October is always the busiest time for our church, and especially for the coworkers. As we will enter into the month of August, let us pray for our spiritual readiness.  Pray that every coworker will stay close to God and maintain good discipline in daily life, and that we pursue strong unity by standing together and supporting one another.
+			
+			5. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+			a. Speaker:  Bro. Yafei Wang from Corning will preach in the Chinese Worship service on “To meet the resurrected Lord” from Luke 24:13-35. Pastor Paul will continue to preach on  Psalm  23  in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+
 			
 						
 
 
 - Individuals
 
-		1. Sister Yiwen Qin passed her A exam: Praise Loead and thank for your prayer, Sistr Yiwen Qin passed her online A-exam smoothly on last Wednesday.  
+		1. Sister Houchun Liu: Please pray for sister Houchun Liu, a former member of our church, who was recently admitted to hospital. Houchun will have a 10-day brain radiotherapy treatment and is waiting for the results of lung puncture diagnosis. Please pray for her and her family to have peace in our Lord and pray for her doctors to find effective treatments for her conditions. 
+		
+		2. Lordship of Christ in Every Family: Let us pray that God will truly be revered and exalted in every family, and while family members might at times find it difficult to submit to each other they will be reminded to humble and soften their hearts before God. Pray that as people submit themselves to God’s sovereignty it enables the Spirit of God to pour down more of God’s love into their own hearts and into their family relationship.
+		
+		3. People Who Are Struggling: Some people within our church family have been struggling with various issues and/or feeling down for a while. Sometimes, words of encouragement from friends can help a lot.  Sometimes, much more intercessory prayers on their behalf are needed.  Let us raise our holy hands to intercede for people we know are struggling.
+		
 
-		2. Singles: Let us pray for God’s guidance upon many single students in the area of relationship. Pray that Christians will honor God by firmly holding to biblical principles. Let us also pray that many seekers will entrust their future to God by faith, become members of God’s family, and build Christ-centered families with godly spouses that God provides for them.
-		
-		3. Health Issues: A few people in our church are dealing with various kinds of health issues. Some are still looking for possible treatment, some need time to see improvement. Let us support them with prayers and caring.
-		
-		4. People Moving Away: Quite a few people, including Christians and seekers, are moving away this summer. Some have just left.  Pray for God’s guidance upon them throughout the transition and that they will all find Christians who are able to help them to continue to grow in their relationship with God.
 
