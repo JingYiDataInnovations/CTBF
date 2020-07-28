@@ -1,8 +1,8 @@
 
 # FICCC CTBF Weekly Newsletter (7/20/2020 - 7/26/2020)
 
-- **查经主题/ Topic of Bible study**: 竭力进入安息	; 希伯来书 4:1-13
-- **带领/Lead**: Mao Huang
+- **查经主题/ Topic of Bible study**: 大祭司耶稣; 希伯来书 4:14-5:10
+- **带领/Lead**: Xin
 		
 - Zoom meeting starts at **7 pm on Friday:**
 		
@@ -80,6 +80,7 @@
 - [6/22/2020 - 7/5/2020](6_22_2020)
 - [7/6/2020 - 7/12/2020](7_6_2020)
 - [7/13/2020 - 7/19/2020](7_13_2020)
+- [7/20/2020 - 7/26/2020](7_20_2020)
 # Prayer meeting:
 	
 - **Saturday prayer meeting at 8:00 pm:**
@@ -141,38 +142,38 @@
 
 - Missions/World
 		
-		1) Pray for Stuart and Peggy as they prepare to move to Michigan: Stuart and Peggy are preparing to move back into their old house in Michigan. Pray that some renovation work they are currently having done would be completed prior to their arrival. Pray also that God would grant wisdom to know how to take care of moving furniture back upstairs from the basement, since they will be under quarantine once they arrive and therefore church friends won’t be able to help.
-
-		2) Pray for Lu Tsun-En’s theological study and dissertation writing:  Tsun-En works with Ambassadors for Christ, and is also studying for a Ph.D. in theology from Westminster Seminary. Pray that God would help Tsun-En find time to continue writing his dissertation, even with a busy ministry schedule, and that God would use his study to better equip him for ministry.
-		the hearts of the students to Christ.
-
+		1) Pray for Abi Bernard as she prepares for a year-long mission in Africa:  Abi Bernard has been a faithful member of our English congregation for the past several years, first as an undergraduate student at Cornell (she graduated in December 2019) and these past six months as a full-time intern with Cru at Cornell. She is now preparing to serve with Cru for a year in the nation of Ivory Coast in Western Africa, where she will be reaching out to students. Pray that God guides her steps, as the current pandemic has created much uncertainty, and abundantly provides for all of her financial needs should He open the door for her to go, as seems likely. Let’s also ask the Lord to make Abi a channel of His saving grace to many needy souls in that country.
+		
+		2) Pray for Brother Li Yue as he prepares for full-time ministry: Li Yue was part of FICCC during his time at Cornell from 2005 to 2008 and feels a strong sense of calling to minister to Chinese students. FICCC started supporting his online theological study via Gordon-Conwell in January this year. Yue is currently seeking God’s guidance about when to shift to full-time study (he is leaning towards Fall 2021). Let’s pray for God to give him clear direction as he makes this decision, and to bless his preparation for ministry.
+		
+		3)  Pray  for Local school reopening: Pray for the local school districts as they are preparing the school to resume class in fall. They have to take into many considerations to safeguard all students. May God grant them wisdom. In addition, we also pray for all the international students in Cornell. IC and TC3 who may be affected by the Fall guidance. Grant them peace and guide their paths.
 						
 		
 
 - Church
 
-			1. Church Reopening: Due to the recent changes regarding COVID-19, the local government's policies, and Cornell University's requirements, our church board has decided to continue online worships and update related equipment. The church board will decide when to open our church for worship on 9/12 based on Cornell's situation. Please pray for the church's reopening. 
+			1.	Our Spiritual Readiness: Every year, from mid-August to late October is always the busiest time for our church, and especially for the coworkers. As we will enter into the month of August, let us pray for our spiritual readiness.  Pray that every coworker will stay close to God and maintain good discipline in daily life, and that we pursue strong unity by standing together and supporting one another.
 
-			2. Chinese Congregation Coworkers’ Meeting: The Chinese Congregation coworkers have a scheduled bi-monthly meeting at 1:30 PM online this coming Sunday. The most important issue is how to prepare  for welcoming and helping new students in the Pandemic and  how to organize the Fall EV Meeting. Pray that God will guide the proceeding of this bi-monthly meeting with His Spirit, and that this will be a time of wise and effective planning and blessed fellowship.
+			2.	Family Fellowship Groups: While the student fellowship groups like CCCF Basil and CTBF are getting ready to reach out to incoming new students,  the family fellowship groups – FF-Canaan, and FF-University Heights are also hoping to grow stronger and more effective in attracting new comers who have families.  Let us pray and cheer for them.
 			
-			3. Evergreen Fellowship Monthly Meeting Online This Saturday: Evergreen will have their monthly meeting online this Saturday, 7/25, from 10 AM to noon, Pray for a good attendance and a good fellowship time.
+			3.	Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+			a.	Speaker:  Rev. Bin Tang from Corning will preach in the Chinese Worship service on “Experiencing Revival While Waiting” from Isaiah 40：27-31. Stephan Teng will preach in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+			b.	Communion: Pray for our readiness to take the communion.
+			c.	The people Who Serve: Pray for everyone who will be serving in the worship service.
 			
-			4. Our Spiritual Readiness: Every year, from mid-August to late October is always the busiest time for our church, and especially for the coworkers. As we will enter into the month of August, let us pray for our spiritual readiness.  Pray that every coworker will stay close to God and maintain good discipline in daily life, and that we pursue strong unity by standing together and supporting one another.
 			
-			5. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-			a. Speaker:  Bro. Yafei Wang from Corning will preach in the Chinese Worship service on “To meet the resurrected Lord” from Luke 24:13-35. Pastor Paul will continue to preach on  Psalm  23  in English congregation. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
-
-			
+						
 						
 
 
 - Individuals
 
-		1. Sister Houchun Liu: Please pray for sister Houchun Liu, a former member of our church, who was recently admitted to hospital. Houchun will have a 10-day brain radiotherapy treatment and is waiting for the results of lung puncture diagnosis. Please pray for her and her family to have peace in our Lord and pray for her doctors to find effective treatments for her conditions. 
+		1.	Mrs. Wong Passed away on last Tuesday: It's with sadness that we remember that Mrs. Wong – Shet-Fai Chan , wife of  former Pastor David Wong passed away in the morning of July 21st  at the age of 96..  We have the confidence that Mrs Wong is in the presence of Jesus and joined with Pastor David Wong in heaven that we will see them again someday.  Dur to the pandemic, there are not the graveside service and memorial service in this time. She has buried at East lawn Cemetery on this Monday morning (7/27) .  Pray that God would comfort and strengthen the family as they will continue to grieve.  
+
+		2.	Sister Houchun Liu: Continue to pray for sister Houchun Liu. She entered a 10-day brain radiotherapy treatment week and she still needs some gene test to determine which type of the lung cancer. Pray for a smooth process and good result. Please also continue to pray for brother Faping Duan and their two daughters, pray especially for God’s grace and mercy upon the whole family. 
 		
-		2. Lordship of Christ in Every Family: Let us pray that God will truly be revered and exalted in every family, and while family members might at times find it difficult to submit to each other they will be reminded to humble and soften their hearts before God. Pray that as people submit themselves to God’s sovereignty it enables the Spirit of God to pour down more of God’s love into their own hearts and into their family relationship.
+		3.	People Considering Baptisms: Pray for people who have decided baptism.in a few weeks. Pray and ask God to guide them to prepare their hearts during this weeks. Let us also pray for people who are considering getting baptized.
 		
-		3. People Who Are Struggling: Some people within our church family have been struggling with various issues and/or feeling down for a while. Sometimes, words of encouragement from friends can help a lot.  Sometimes, much more intercessory prayers on their behalf are needed.  Let us raise our holy hands to intercede for people we know are struggling.
-		
+
 
 
