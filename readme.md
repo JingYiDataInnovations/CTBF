@@ -1,5 +1,5 @@
 
-# FICCC CTBF Weekly Newsletter (7/20/2020 - 7/26/2020)
+# FICCC CTBF Weekly Newsletter (7/27/2020 - 8/2/2020)
 
 - **查经主题/ Topic of Bible study**: 大祭司耶稣; 希伯来书 4:14-5:10
 - **带领/Lead**: Xin
