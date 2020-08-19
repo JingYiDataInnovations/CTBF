@@ -1,10 +1,10 @@
 
-# FICCC CTBF Weekly Newsletter (8/10/2020 - 8/16/2020)
+# FICCC CTBF Weekly Newsletter (8/17/2020 - 8/23/2020)
 
  
 ## Fellowship
-- **查经主题/ Topic of Bible study**: 神确切的应许; 希伯来书 6:13-20
-- **带领/Lead**: Dong Wang
+- **查经主题/ Topic of Bible study**: 祭司麦基洗德; 希伯来书 7:1-10
+- **带领/Lead**: John
 		
 
 
@@ -87,6 +87,7 @@
 - [7/20/2020 - 7/26/2020](7_20_2020)
 - [7/27/2020 - 8/2/2020](7_27_2020)
 - [8/3/2020 - 8/9/2020](8_3_2020)
+- [8/10/2020 - 8/16/2020](8_10_2020)
 # Prayer meeting:
 	
 - **Saturday prayer meeting at 8:00 pm:**
@@ -148,39 +149,38 @@
 
 - Missions/World
 		
-		1) Pray for Siu-Yuk and the Children of Promise career training center:  Siu-Yuk helps to lead the Children of Promise ministry in East Asia, that helps people with physical and mental disabilities. This organization recently received funding from the local government to start a second career training center in the city where they are located. Pray that God will help Siu-Yuk and her coworkers to get this second center off to a good start, and would use it to open up natural opportunities to share the gospel.
+		1) Pray for Stuart and Peggy as they move to Michigan this week: Stuart and Peggy have been staying with their daughter Kathryn and family in Arizona, but are preparing to move to their house in Michigan at the end of this week. Pray that they will have the help they need to get their furniture and other items set up once they arrive. Let’s also ask the Lord to give Kathryn and family grace as they start a new school year in the midst of the pandemic and without Peggy’s childcare support.
 		
-		2) Pray for Xing Siyao and her husband He Yang with a newborn baby and need for visa: FICCC supported Siyao during her study at Westminster Seminary until she graduated last year. She and her husband are now in Boston, where he is doing church ministry and Siyao gave birth to a baby girl in March. Pray for God to grant them grace to care well for the baby, especially once Siyao’s mom returns to China this month. Let’s also pray that Yang would receive the visa he has been waiting for since last year, as his OPT recently ended and he cannot officially work until his visa is approved. 
+		2) Pray for Derrick and Esther as they wait to return to Thailand: Derrick and Esther and their kids are currently in California on Home Assignment and waiting to return to Thailand and their ministry there. Pray that the Lord would graciously open the door for them to return to the country, which is still restricting foreigners from entering the country. Pray as well for the future of their Word Language School in the country, which reaches out to local people by teaching English and Chinese, since restrictions caused by the pandemic have greatly reduced the number of students.
 		
-		3) East Asia Cru staff in Ithaca:  Cru (formerly Campus Crusade) had over 200 staff serving in China who had to return to the United States due to COVID19.  They are not yet allowed to return, so Cru has been searching for places for these staff members to minister during the fall semester.  They have decided to send 8-10 staff members to serve in Ithaca - particularly ministering to college students.  FICCC is housing 6-8 of them either in the House of Joy or in the house of a family who will be in China during the fall semester.  These staff members will evangelize and disciple students - particularly among CCCF, BASIL, the English congregation, Cru and CBS.  Pray for wisdom in mobilizing them, pray for effective outreach and discipleship.  Cru is still searching for one more place to house either a couple or two single women.  Pray that they will find a place that is low rent and close to the Cornell campus.
+		3) Pray for David and Susan as they wait to return to their host country in Asia David and Susan are currently in the US, where they have attended their son Ike’s wedding and David’s father’s 99thbirthday. Their host country is due to allow foreigners to return starting on 31 August. Pray that the Lord would allow they to return at that time and continue with their ministry of training Christians from China to be cross-cultural missionaries, as well as reaching people in the host nation.
+		
+		4) Abi Bernard- Praise the Lord! Sister Abi Bernard has finished her Cru Mission trip fund raising goal and plan to leave for Ivory Coast one year mission trip. Please pray That she  would be able to leave in September. For peace in the Ivory Coast. Thank God for the peaceful exchanges of power we see in the US.   That God would give her strength to be a light in potentially stressful, if not dangerous, context. Indeed, that He would give her joy in doing so!- For the Cru and Ivorian staff as they navigate this difficult time.
+		
 
 								
 		
 
 - Church
-
-		1. Church reopening:  On July 18 our church board members decided to postpone until September 12 the decision to reopen the church.  This decision was based on wanting to wait to find out whether the arrival of Cornell students will result in an increase in positive cases of COVID19.  Pray that our board members will be both wise and bold in following God's guidance for the church reopening.  Pray that there will be no increase in positive cases so that our church can reopen soon.
-
-		2. Fellowship Leaders:  As the new semester is about to begin, let us remember to pray for our fellowship leaders and their families on a regular basis.
+		1. Church reopening:  On July 18 our church board members decided to postpone until September 12 the decision to reopen the church.  This decision was based on wanting to wait to find out whether the arrival of Cornell students will result in an increase in positive cases of COVID19.  Pray that our board members will be both wise and bold in following God's guidance for the church reopening.  Pray that there will be no increase in positive cases so that our church can reopen soon.                                                                                         
 		
-		3. Adult Sunday School: Pray for God’s guidance upon all Chinese Adult Sunday School teachers who will be making the preparation in these few weeks before the classes.
+		2. Chinese Adult Sunday School: The Chinese Adult Sunday School class will begin on Sunday 9/6. One class is offered for Christians this time through online  - Revelation. Pray for good attendance. Our goal is that one day great majority of our Chinese Congregation members will attend adult Sunday school every Sunday. Pray that the attendees understanding of the Word of God can go deeper under the guidance of the Holy Spirit.
 		
-		4. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-		a. Speaker:  Rev. Bin Tang will preach in the on “Receiving Comfort in Tribulation” from 2 Corinthians 1: 1-11. Pastor Paul will preach in English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+		3. Bible Reading: This season of Bible Read-a-thon started on May 1st of this year, and we still have two months left to finish all the chapters for this period. Let us continue to pray that one of the blessings people are experiencing in this church is the development of the healthy habit of daily devotional Bible reading.
+		
+		4. Cru staffs meeting with CCCF and Basil coworkers on Friday night: The Cru staffs from Asian will meet the coworkers from CCCF,Basil and CTBF on this Friday night to share their plan in Ithaca. Please pray that there has a wonderful online gathering.
+		
+		5. Evergreen Fellowship Monthly Meeting Online This Saturday: Evergreen will have their monthly meeting online this Saturday, 8/22, from 9AM to noon. Pray for a good attendance and a good fellowship time.
+		
+		6. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+		a. Speaker:  Rev. ChiEng Yuan will preach in the on “Mastering conflict---Love and sincerity” from 2 Corinthians 1: 12 - 2: 4. Pastor Paul will preach in English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
 		b. The people Who Serve: Pray for everyone who will be serving in the worship service.
-					
-								
+		
+		
+										
 
 
 - Individuals
 
-		1. Prof. Jim Dai: Brother Jim Dai fall from his bike on last Thursday and broke some bones, had a smooth surgery on Monday, please pray for his recovery and prevent from the coronavirus when he in hospital.  
-
-		2. Leaving Ithaca in this week: 
-		A. On 8/11 Haiyan He and Hepeng Jia family is leaving Ithaca for airport then back  to China on 8/12, then after 14 days quarantine in Shanghai, will settle down in Suzhou, Please pray their safety and healthy travel. 
-		B. Yang Fan and Yuling Family is moving to Seattle to start Fan’s  new work, please pray for their move out  on 8/14 and leaving  on 8/15. Keep them and family in your prayer.
-		
-		3. New Comers to Our Church: A few new comers have been joining to our church online service and Friday online bible study  Pray that they will feel at home and feel comfortable to have more interactions with members in our church.
-		
-		4. Job Searchers: With bad economy and funding freeze a few church members who are looking for jobs have experienced one after another setback. Pray for God’s bestowing of comfort, peace, and confidence in their hearts.
-		
+		1. Returning and Leaving: Many students are returning to Ithaca this week, and a few people who have been attending our church regularly in the past few months or years are leaving in these few weeks.  Pray for smooth and safe travel for every one of them, and that wherever they are they will continue to go to church and to have good fellowship in the Lord.
+				
