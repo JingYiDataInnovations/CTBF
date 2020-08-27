@@ -1,10 +1,10 @@
 
-# FICCC CTBF Weekly Newsletter (8/17/2020 - 8/23/2020)
+# FICCC CTBF Weekly Newsletter (8/24/2020 - 8/30/2020)
 
  
 ## Fellowship
-- **查经主题/ Topic of Bible study**: 祭司麦基洗德; 希伯来书 7:1-10
-- **带领/Lead**: John
+- **查经主题/ Topic of Bible study**: 耶稣是神起誓立的永远的祭司; 希伯来书 7:11-22
+- **带领/Lead**: Dong Wang
 		
 
 
@@ -88,6 +88,7 @@
 - [7/27/2020 - 8/2/2020](7_27_2020)
 - [8/3/2020 - 8/9/2020](8_3_2020)
 - [8/10/2020 - 8/16/2020](8_10_2020)
+- [8/17/2020 - 8/23/2020](8_17_2020)
 # Prayer meeting:
 	
 - **Saturday prayer meeting at 8:00 pm:**
@@ -149,38 +150,38 @@
 
 - Missions/World
 		
-		1) Pray for Stuart and Peggy as they move to Michigan this week: Stuart and Peggy have been staying with their daughter Kathryn and family in Arizona, but are preparing to move to their house in Michigan at the end of this week. Pray that they will have the help they need to get their furniture and other items set up once they arrive. Let’s also ask the Lord to give Kathryn and family grace as they start a new school year in the midst of the pandemic and without Peggy’s childcare support.
-		
-		2) Pray for Derrick and Esther as they wait to return to Thailand: Derrick and Esther and their kids are currently in California on Home Assignment and waiting to return to Thailand and their ministry there. Pray that the Lord would graciously open the door for them to return to the country, which is still restricting foreigners from entering the country. Pray as well for the future of their Word Language School in the country, which reaches out to local people by teaching English and Chinese, since restrictions caused by the pandemic have greatly reduced the number of students.
-		
-		3) Pray for David and Susan as they wait to return to their host country in Asia David and Susan are currently in the US, where they have attended their son Ike’s wedding and David’s father’s 99thbirthday. Their host country is due to allow foreigners to return starting on 31 August. Pray that the Lord would allow they to return at that time and continue with their ministry of training Christians from China to be cross-cultural missionaries, as well as reaching people in the host nation.
-		
-		4) Abi Bernard- Praise the Lord! Sister Abi Bernard has finished her Cru Mission trip fund raising goal and plan to leave for Ivory Coast one year mission trip. Please pray That she  would be able to leave in September. For peace in the Ivory Coast. Thank God for the peaceful exchanges of power we see in the US.   That God would give her strength to be a light in potentially stressful, if not dangerous, context. Indeed, that He would give her joy in doing so!- For the Cru and Ivorian staff as they navigate this difficult time.
-		
+		1) Pray for Stuart and Peggy as they travel to Michigan this week: Stuart and Peggy have started their move to Michigan and will be on the road for the next three days, visiting with friends in Oklahoma as they travel from Arizona to Michigan. Pray that God would keep them safe as they make this long trip, and protect them from the corona virus. Let’s also ask God to grant that their application for health care in Michigan would be processed in good time so that there would be no break in their medical coverage.
 
-								
+		2) Pray for Lu Tsun-En as he works on his Ph.D. dissertation in New Testament theology: Tsun-En works full-time with Ambassadors for Christ while completing his Ph.D. dissertation on the parables of Jesus. He is currently on the third chapter, which he hopes to finish by the end of this month. He plans to write a total of five chapters. Pray for God to give Tsun-En strength, wisdom, and discipline to finish the dissertation while balancing ministry and family needs.
+		
+		3) Pray for Zheng Mingzhang and his wife Xiuhui as they reach out to young people in Taiwan:  Zheng Mingzhang and his wife Xiuhui are former members of FICCC doing gospel work in a rural town in Taiwan where there are few Christians. Pray that the six new members who are about to enter the cram school Mingzhang has established there would adapt well and would be open to the gospel.
+
+
 		
 
 - Church
-		1. Church reopening:  On July 18 our church board members decided to postpone until September 12 the decision to reopen the church.  This decision was based on wanting to wait to find out whether the arrival of Cornell students will result in an increase in positive cases of COVID19.  Pray that our board members will be both wise and bold in following God's guidance for the church reopening.  Pray that there will be no increase in positive cases so that our church can reopen soon.                                                                                         
+		1. Church reopening:  On July 18 our church board members decided to postpone until September 12 the decision to reopen the church.  This decision was based on wanting to wait to find out whether the arrival of Cornell students will result in an increase in positive cases of COVID19.  Pray that our board members will be both wise and bold in following God's guidance for the church reopening.  Pray that there will be no increase in positive cases so that our church can reopen soon.
 		
-		2. Chinese Adult Sunday School: The Chinese Adult Sunday School class will begin on Sunday 9/6. One class is offered for Christians this time through online  - Revelation. Pray for good attendance. Our goal is that one day great majority of our Chinese Congregation members will attend adult Sunday school every Sunday. Pray that the attendees understanding of the Word of God can go deeper under the guidance of the Holy Spirit.
+		2. Chinese Adult Sunday School: The Chinese Adult Sunday School class will begin on Sunday 9/6. One class is offered for Christians this time through online  - Revelation, a class taught by Rev. Enoch Pan in  Smyrna Resource Center. And Seeker’s online class will be led by Mavis Ng and Wenchao Wang. 
+		a. Let us pray that every fellowship leader will continue to take lead to motivate all members-Christians and seekers to always attend Sunday school to study God’s Word diligently and humbly. Our goal is that one day great majority of our Chinese Congregation members will attend adult Sunday school every Sunday.
+		b. Please pray for the teachers. Ask the Holy Spirit to guide them to prepare and to teach. May God use them as the channel of His truth, and bless them with the teaching.
+		c. Pray for everyone who will be attending the three classes in this semester. Pray that their understanding of the Word of God can go deeper under the guidance of the Holy Spirit.
 		
-		3. Bible Reading: This season of Bible Read-a-thon started on May 1st of this year, and we still have two months left to finish all the chapters for this period. Let us continue to pray that one of the blessings people are experiencing in this church is the development of the healthy habit of daily devotional Bible reading.
+		3. Children Sunday school: Please pray for the new Children Sunday School Co-team—Cindy Chen, Yiru Li and WeihuaWang—for a clear vision and spiritual gifts to lead the Children Ministry. Please also pray for God to guide all-coworkers in this ministry to work in one heart and one spirit. In addition, prayer for God to send more teachers and families to join our children Sunday school.
 		
-		4. Cru staffs meeting with CCCF and Basil coworkers on Friday night: The Cru staffs from Asian will meet the coworkers from CCCF,Basil and CTBF on this Friday night to share their plan in Ithaca. Please pray that there has a wonderful online gathering.
+		4. The Personal Evangelism Class on next two Saturdays: There will be an one hour personal caring evangelism training class lead by Sister Xiaoshao Li  on August 29th & September 5th morning.  Please pray for Xiaoshan’s preparation and high attendees in class.
 		
-		5. Evergreen Fellowship Monthly Meeting Online This Saturday: Evergreen will have their monthly meeting online this Saturday, 8/22, from 9AM to noon. Pray for a good attendance and a good fellowship time.
-		
-		6. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-		a. Speaker:  Rev. ChiEng Yuan will preach in the on “Mastering conflict---Love and sincerity” from 2 Corinthians 1: 12 - 2: 4. Pastor Paul will preach in English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+		5. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+		a. Speaker:  Rev. Bin Tang will continue the sermon series with the theme “Experiencing the Conversion of Life in Christ”, and preach in the on “Whose Defeat, Whose Victory?” from 2 Corinthians 2: 12 - 17. Pastor Paul will preach in English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
 		b. The people Who Serve: Pray for everyone who will be serving in the worship service.
-		
-		
-										
+								
 
 
 - Individuals
-
-		1. Returning and Leaving: Many students are returning to Ithaca this week, and a few people who have been attending our church regularly in the past few months or years are leaving in these few weeks.  Pray for smooth and safe travel for every one of them, and that wherever they are they will continue to go to church and to have good fellowship in the Lord.
-				
+		1. University Students’ Beginning of Class: As a new semester will begin in a week, let us pray for all church members who are university students at local schools. Pray that God will help them make the priorities right, manage their time well, and then grow in every aspect of life.
+		
+		2. Brother Yixiao Wang:  Brother Yixiao Wang’s moving into Buffalo this weekend to meet cornell’s off  campus student  requirement.  Pray for the moving and driving. 
+		
+		3. High School Seniors’ College Application: This year quite a few youth group kids are rising seniors in high school and they will soon start applying for colleges. For some of the kids and their parents this can become a very time consuming and energy draining process. Pray for God’s clear guidance upon every one of them.
+		
+		4. Christian Professors: Pray for the Christian professors in our church.  Pray and ask God to bless their teaching and research, and that they will continue to be used by God to make a strong and positive impact to their students and people who work with them. Also pray for God’s protection and blessing on their relationship with their spouse and children.
