@@ -162,6 +162,7 @@
 		
 
 - Church
+
 		1. Holy Spirit. Keep yourselves in God's love as you wait for the mercy of our Lord Jesus Christ to bring you to eternal life. Be merciful to those who doubt; snatch others from the fire and save them; to others show mercy, mixed with fear--hating even the clothing stained by corrupted flesh. To Him who is able to keep you from falling and to present you before his glorious presence without fault and with great joy-- to the only God our Savior be glory, majesty, power and authority, through Jesus Christ our Lord, before all ages, now and forevermore! Amen.” (Jude 20-25).
 
 		2. Board Meeting  on Sept 12:  The church board will meet on September 12 to make the decision on reopening. Pray God be with them and guide them to take all available information and make wisest decision. Pray that our church can effectively utilizes the church resources to provide opportunity for church ministries while keeping people physically as safe as possible.
@@ -193,6 +194,7 @@
 		
 
 - Individuals
+
 		1. University Students’ Beginning of Class: As a new semester will begin this week, let us pray for all church members who are university students at local schools. Pray that God will help them make the priorities right, manage their time well, and then grow in every aspect of life.
 
 		2. Singles: Let us pray for God’s guidance upon many single students in the area of relationship. Pray that Christians will honor God by firmly holding to biblical principles. Let us also pray that many seekers will entrust their future to God by faith, become members of God’s family, and build Christ-centered families with godly spouses that God provide for them.
