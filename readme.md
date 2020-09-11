@@ -2,7 +2,7 @@
 # FICCC CTBF Weekly Newsletter (9/7/2020 - 9/13/2020)
 
  
-# 
+
 
 
 <div style="text-align:center">
