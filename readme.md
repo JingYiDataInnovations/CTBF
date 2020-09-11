@@ -98,11 +98,9 @@
 
 - Missions/World
 		
-		1) Pray for Siu-Yuk and the Children of Promise career training center: Siu-Yuk helps to lead the Children of Promise ministry in East Asia, that helps people with physical and mental disabilities. This organization recently received funding from the local government to start a second career training center in the city where they are located. Pray that God will help Siu-Yuk and her coworkers to get this second center off to a good start, and would use it to open up natural opportunities to share the gospel.
-
-		2) Pray for Lu Tsun-En as he prepares to speak online to FICCC, works on dissertation: Tsun-En, who works full-time with Ambassadors for Christ and is supported by FICCC, will be sharing messages on Friday, September 11 and Sunday, September 13. Let’s pray for God to bless his preparation and use him to bring the Lord’s Word to our congregation. Let’s also ask God to bless his current efforts to finish his Ph.D. dissertation in theology and use this process to make him a more effective minister of God’s Word.
-		
-		3) Pray for the Lord to use FICCC to reach Chinese living in Ithaca: There are a significant number of Chinese living in Ithaca who are not Christians, some of whom are open to the gospel, especially given the challenges created by the current pandemic. Pray that God would work in the hearts of these people that might be drawn to learn more about the gospel. Pray as well that members of FICCC would be sensitive to the Spirit’s leading and have opportunities to invite them to join a fellowship meetings or Sunday worship.
+		1) Pray for God to bless the ministry of Second Wind Cottages in Ithaca: FICCC supports a Christian group in Ithaca called Second Wind Cottages that shares the gospel with homeless people and provides temporary housing for them in order to help them get back on their own feet. Pray that God blesses this ministry and uses it to draw many needy souls to Christ, especially in the midst of the pandemic and increased risk of homelessness.
+	
+		 2) Pray for Brother Li Yue as he prepares for full-time ministry: Li Yue was part of FICCC during his time at Cornell from 2005 to 2008 and feels a strong sense of calling to minister to Chinese students. FICCC started supporting his online theological study via Gordon-Conwell in January this year. Yue is currently seeking God’s guidance about when to shift to full-time study (he is leaning towards Fall 2021). Let’s pray for God to give him clear direction as he makes this decision, and to bless his study of the Bible to prepare him for effective ministry.
 
 
 
@@ -110,40 +108,35 @@
 
 - Church
 
-		1. Holy Spirit. Keep yourselves in God's love as you wait for the mercy of our Lord Jesus Christ to bring you to eternal life. Be merciful to those who doubt; snatch others from the fire and save them; to others show mercy, mixed with fear--hating even the clothing stained by corrupted flesh. To Him who is able to keep you from falling and to present you before his glorious presence without fault and with great joy-- to the only God our Savior be glory, majesty, power and authority, through Jesus Christ our Lord, before all ages, now and forevermore! Amen.” (Jude 20-25).
-
-		2. Board Meeting  on Sept 12:  The church board will meet on September 12 to make the decision on reopening. Pray God be with them and guide them to take all available information and make wisest decision. Pray that our church can effectively utilizes the church resources to provide opportunity for church ministries while keeping people physically as safe as possible.
+		1. Unity in Every Fellowship: Loving one another is not always easy, but when Christians in a fellowship do not fully commit themselves to this command that Jesus emphasized repeatedly, every member, as well as the whole fellowship will suffer. Let us use Philippians 1:27; 2:1-11 to encourage and remind one another.
+		PHP 1:27 Whatever happens, conduct yourselves in a manner worthy of the gospel of Christ... 2:1 If you have any encouragement from being united with Christ, if any comfort from his love, if any fellowship with the Spirit, if any tenderness and compassion, 2 then make my joy complete by being like-minded, having the same love, being one in spirit and purpose. 3 Do nothing out of selfish ambition or vain conceit, but in humility consider others better than yourselves. 4 Each of you should look not only to your own interests, but also to the interests of others. 5 Your attitude should be the same as that of Christ Jesus: 6 Who, being in very nature God, did not consider equality with God something to be grasped, 7 but made himself nothing, taking the very nature of a servant, being made in human likeness. 8 And being found in appearance as a man, he humbled himself and became obedient to death--even death on a cross! 9 Therefore God exalted him to the highest place and gave him the name that is above every name, 10 that at the name of Jesus every knee should bow, in heaven and on earth and under the earth, 11 and every tongue confess that Jesus Christ is Lord, to the glory of God the Father.
+		1:27  只要你們行事為人與基督的福音相稱…同有一個心志，站立得穩，為所信的福音齊心努力。2:1 所以，在基督裏若有甚麼勸勉，愛心有甚麼安慰，聖靈有甚麼交通，心中有甚麼慈悲憐憫， 2 你們就要意念相同，愛心相同，有一樣的心思，有一樣的意念，使我的喜樂可以滿足。3 凡事不可結黨，不可貪圖虛浮的榮耀，只要存心謙卑，各人看別人比自己強；4 各人不要單顧自己的事，也要顧別人的事。5 你們當以基督耶穌的心為心：6 他本有神的形象，不以自己與神同等為強奪的；7 反倒虛己，取了奴僕的形象，成為人的樣式；8 既有人的樣子，就自己卑微，存心順服，以至於死，且死在十字架上。9 所以，神將他升為至高，又賜給他那超乎萬名之上的名，10叫一切在天上的、地上的和地底下的，因耶穌的名無不屈膝，11無不口稱「耶穌基督為主」，使榮耀歸與父神。
 		
-		3. Mountain Stream Team:  The team plans to train college students in evangelism.  Around 10 students have expressed interest.  Pray that the students will commit, that the team will train them well, that they will be able to set up times to meet with non-Christians and that non- Christians will accept Christ and become committed disciples.  Pray that the team will be able to meet up with students in spite of the COVID 19 restrictions to campus.  The team will lead the entire English worship service on September 20.  This will help our English congregation to get to know them.  Pray that the team will be guided by the Holy Spirit in their preparation.  Pray specifically for the eight team members.
+		2. Coworkers’ Inauguration: All elders, deacons, and coworkers from both congregations will have the annual coworkers’ inauguration in the two worship services this Sunday, 9/13. While none of us is perfect, let us pray that every coworker takes the commitment seriously and really has the heart to set good example in all areas for all church members to follow.
 		
-		4. Youth Fellowship:  Pray for youth as they will start school soon.  Some of them will take classes online and some in person.  Linnea Epp will start taking classes in Twin Tiers Christian Academy.  Pray that they will adjust well to new circumstances, will study hard for God's glory, will not give into the temptation to cheat, and be committed to the spiritual disciplines of prayer, Scripture reading and involvement in the Christian community.  Pray for our youth leaders they will give godly counsel and leadership to our youth.
+		3. Board Meeting on Sept 12:  The church board will meet on September 12 to make the decision on reopening. Pray God be with them and guide them to take all available information and make wisest decision. Pray that our church can effectively utilizes the church resources to provide opportunity for church ministries while keeping people physically as safe as possible.
 		
-		5. English Congregation’s One-on-one Discipleship:  Besides the 8 members of the Mountain Stream Team, there are around 10 FICCC local residents and grad students who plan to do one-on-one discipleship this spring semester.  Pray for wisdom for Pastor Paul as he pairs them up.  Pray that the disciple makers will love the disciples and strategically help them grow spiritually.
+		4. Chinese Adult Sunday School: Praise the Lord that 32 adults attended Chinese Adult Sunday School online the past Sunday.  Pray for more Christians to have the childlike heart to attend Bible class (Revelation) every Sunday as well.
 		
-		6. Church reopening:  On July 18 our church board members decided to postpone until September 12 the decision to reopen the church.  This decision was based on wanting to wait to find out whether the arrival of Cornell students will result in an increase in positive cases of COVID19.  Pray that our board members will be both wise and bold in following God's guidance for the church reopening.  Pray that there will be no increase in positive cases so that our church can reopen soon.
-		
-		7. New Students: Due to Cornell University and Ithaca College COVID19 restrictions, it will be harder to reach out to new students.  Pray for creativity and wisdom in strategizing how to do this.  Pray that students will respond well to our outreach.  Pray that other students would take the initiative to seek out our church.  
-		
-		8. The Personal Evangelism Class on Saturdays:  Praise the Lord,  more than 25 persons attended last Saturday’s Class.   On this Saturday morning, there is the second classes at 10:00am.  Please pray for Xiaoshan’s preparation and high attendees in class.
-		
-		9. Evangelistic Meeting in October:  The annual Mandarin evangelistic meeting is coming in just a few weeks (10/23-25). At this stage, let us pray for the following:
+		5. Evangelistic Meeting in October:  The annual Mandarin evangelistic meeting is coming in just a few weeks (10/23-25). At this stage, let us pray for the following:
 		a.   Speaker: Ask God to give Prof. Der-Chen Chang’s words and guide him to prepare the message.
 		b.   Seekers Already in Contact with Us: Start praying for each of the seeker individually.
 		c.   Ourselves: Commit ourselves to praying for the seekers in these six weeks and to
 		 inviting people when time comes closer.
 		
-		10. Chinese Adult Sunday School: The Chinese Adult Sunday School class will begin on this coming Sunday, 9/6. One class is offered for Christians this time through online  - Revelation, a class taught by Rev. Enoch Pan in  Smyrna Resource Center. And Seeker’s online class will be led by Mavis Ng and Wenchao Wang. Pray for everyone who will be attending the classes in this semester. Pray that their understanding of the Word of God can go deeper under the guidance of the Holy Spirit.
+		6. Chinese Fellowship Joint Meeting This Friday: There will be a Chinese fellowship joint meeting this Friday night at 7:30-9:00 PM online; the speaker is Min. Tsun-En Lu, Ph.D. candidate in Westminster Theological Seminary and Discipleship Training Ministry Assistant Director in Ambassadors for Christ, the topic is the Immeasurable Hope.  The Zoom ID is: 6119089970, and the password is: 2020. Pray that everyone will be prepared to join in the meeting.
 		
-		11. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-		a. Speaker:  Rev. Bin Tang will continue the sermon series with the theme “Experiencing the Conversion of Life in Christ”, and preach in the on “Receiving Assurance Through Reliance on God" from 2 Corinthians 3:1-18. Pastor Paul will preach in English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
-		b. Communion: Pray for our readiness to take the communion.
-		c. The people Who Serve: Pray for everyone who will be serving in the worship service.
+		7. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+		a. Speaker:  Min Tsun-En Lu will preach in the Chinese service on “The Stone that the Builder Rejected” from Psalm 118. Pastor Paul will preach in English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+		b. The people Who Serve: Pray for everyone who will be serving in the worship service.
+		
+
 		
 
 - Individuals
 
-		1. University Students’ Beginning of Class: As a new semester will begin this week, let us pray for all church members who are university students at local schools. Pray that God will help them make the priorities right, manage their time well, and then grow in every aspect of life.
+		1. The Students in fall semester:  Pray for students who return to school or take classes online at home, and ask God to help students and parents quickly adapt to the epidemic, new study/lifestyle during the period; also ask God to protect the safety of the students at schools, guard against the epidemic, and protect themselves physical health, learning more dependent on God.
 
-		2. Singles: Let us pray for God’s guidance upon many single students in the area of relationship. Pray that Christians will honor God by firmly holding to biblical principles. Let us also pray that many seekers will entrust their future to God by faith, become members of God’s family, and build Christ-centered families with godly spouses that God provide for them.
+		2. Healing and Comfort: Pray for our congregation members and theirfamilies who are going through struggles with illness and treatment. May God comfort and heal them and grant enduring strength and peace.
 		
-		3. Seekers: Many seekers have visited our church and some have been coming multiple times.  Let us pray for God’s work in their hearts. And let us ask God to give each one of us (Christians) the clear burden to pray for (at least) one specific individual seeker on a daily basis (at least) in these two months—September and October.
+		3. Job Search: A few church members are looking for jobs. Pray for their job search, ask God to give them guidance, open doors for them, and at the meantime bless them with a peaceful mind.
