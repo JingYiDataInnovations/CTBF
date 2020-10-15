@@ -1,8 +1,8 @@
 
-# FICCC CTBF Weekly Newsletter (10/5/2020 - 10/11/2020)
+# FICCC CTBF Weekly Newsletter (10/12/2020 - 10/18/2020)
 
- 
-- 这个周五我们团契将有特别聚会，mavis姐妹带领我们讨论有关孩子教养以及与个人灵修工作家庭方面的关系。欢迎大家参加积极讨论分享.
+- **查经主题/ Topic of Bible study**: 唯有耶稣基督作为赎罪祭能使人罪得赦免; 希伯来书 10:1-18
+- **带领/Lead**: Dong Wang
 
 - Zoom meeting starts at **7 pm on Friday:**
 			
@@ -87,7 +87,8 @@
 - [9/7/2020 - 9/13/2020](9_7_2020)
 - [9/14/2020 - 9/20/2020](9_7_2020)
 - [9/21/2020 - 9/27/2020](9_21_2020)
-
+- [10/5/2020 - 10/11/2020](10_5_2020)
+- 
 # Prayer meeting:
 	
 - **Saturday prayer meeting at 8:00 pm:**
@@ -165,28 +166,38 @@ pwd 2020
 ## Prayer
 
 ### Missions/World 
-1) Pray for Derrick and Esther as they wait to return to Thailand: Derrick and Esther and their kids are currently in California on Home Assignment and waiting to return to Thailand and their ministry there. Pray that the Lord would graciously open the door for them to return to the country, which is still restricting foreigners from entering the country. Pray as well for the future of their Word Language School in the country, which reaches out to local people by teaching English and Chinese, since restrictions caused by the pandemic have greatly reduced the number of students.
+1) Pray for Derrick as he recovers from pacemaker surgery: Derrick is still in the US waiting to return to Thailand and recently had surgery to implant a pacemaker. So far the doctor has detected three episodes with a fast heartbeat over the course of a month. Let’s pray that Derrick would continue to recover well and that God would grant the doctor wisdom in adjusting his medication to resolve the occasional fast heartbeat issue.
 
-2) Pray for Israel and God's chosen people, the Jews: The Bible says, "Pray for the peace of Jerusalem. May those who love you be secure. May there be peace within your walls and security within your citadels" (Psalm 122:6-7). Let's pray for peace in the land of Israel, and also that God will bless the work of Jew.
+2) Pray for Zheng Mingzhang and his wife Xiuhui as they reach out to young people in Taiwan: Zheng Mingzhang and his wife Xiuhui are former members of FICCC doing gospel work in a rural town in Taiwan where there are few Christians. Let’s pray that the 6 new children who recently entered the cram school Mingzhang has established there would adapt well and would be open to the gospel.
+
+
 
 ### Church                                                                                                                                                                                                                                                                             
-1. Bible Reading:  The new season of Bible Read-a-thon will begin on November 1st and will last till the end of April 2021. Let us pray that one of the blessings people will experience in this church is the development of the healthy habit of daily devotional Bible reading.
+1. Evangelistic Meeting in October:  The annual Mandarin evangelistic meeting is only 10 days away (10/23-25).  Pray for our own active involvement in the following area:
+a) We will be faithful in prayer for the work of the Holy Spirit in this major outreach event.
+b) We will be in action to invite people around us and every one that God brings to our mind.
+c) We will be watchful over our own heart, spiritual wellbeing, and testimony at home, school and the workplace.
+d) We will be supportive of one another, knowing that God desires our whole church to serve Him as an unified team.
+e) We will be humble and ready to fill in any gap to make this evangelistic meeting that brings God the glory.
+f) We will be convicted again that it was God’s grace that saved us through the blood of Jesus Christ.
+g) We will be challenged to love Him and serve Him with our very best, and our passion and commitment will be renewed.
 
-2. Bring New Students to Church on Sunday:  Due to Cornell University and Ithaca College COVID19 restrictions, it will be harder to reach out to new students.  Pray for creativity and wisdom in strategizing how to do this.  Pray that students will respond well to our outreach.  Pray that other students would take the initiative to seek out our church.  
+2. Growth and Fruit-bearing of Every Christian:  While we are holding evangelistic meetings with the hope of leading more people into the Body of Christ, let us also pray that Christians in our church (especially those who got baptized here) bear good testimony for Christ, and other can really see from our lives that we are committed followers of Christ. Pray that no Christian in our church will stay spiritually immature for years, turn lukewarm and become salt that lost its saltiness. Let us heed the warning in Hebrews 10:25 “Let us not give up meeting together, as some are in the habit of doing, but let us encourage one another--and all the more as you see the Day approaching.”
 
-3. Solid Spiritual Growth of All Families: Pray that through mutual encouragement, caring, prayer, no family or individual in our church will be left behind, but every one—adult and kid will be motivated to grow in their relationship with God and experience the abundant blessings God intends for us to receive.
+3. Bible Reading: The current season of Bible Read-a-thon will end on 10/31, pray for those who are still striving to finish the reading for the current season. Also pray that more people will make serious effort to build up the habit of daily Bible reading in the following six months.
 
-4. Evangelistic Meeting in October:  The annual Mandarin evangelistic meeting is coming in just a few weeks (10/23-25). At this stage, let us pray for the following:
-a.   Speaker: Ask God to give Prof. Der-Chen Chang’s words and guide him to prepare the message.
-b.   Seekers Already in Contact with Us: Start praying for each of the seeker individually.
-c.   Ourselves: Commit ourselves to praying for the seekers in these six weeks and to
- inviting people when time comes closer.
+4. Evergreen Fellowship Monthly Meeting Online This Saturday: Evergreen will have their monthly meeting online this Saturday, 10/17, from 9AM to noon,  Min Peng Tian willlead the Bible Study online. Pray for a good attendance and a good fellowship time.
 
 5. Worship Service: Pray for the worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-a. Speaker:  Elder Mancang Dong will preach in the Chinese service on “The Tent and House” from 2 Corinthians 5:1-10.   Pastor Paul will preach in English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+a. Speaker:  Rev. Bin Tang will preach in the Chinese worship service on “From Sorrow to Joy” from 2 Corinthians 7:1-16.   Pastor Paul will preach in the English worship. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
 b. The people Who Serve: Pray for everyone who will be serving in the worship service.
 
 ### Individuals
-1. Good Balance in Stressful Situation: Many people ( specially the new students) in our church have to deal with stress frequently.  While we pray for God’s strength and grace upon them, let us also pray for wisdom and maturity to learn to keep good balance in life, especially in the areas of setting priorities and time management.
+1. Lordship of Christ in Every Family: Let us pray that God will truly be revered and exalted in every family, and while family members might at times find it difficult to submit to each other they will be reminded to humble and soften their hearts before God.  Pray that as people submit themselves to God’s sovereignty it enables the Spirit of God to pour down more of God’s love into their own hearts and into their family relationship.
 
-2. Continue to pray for those who are facing decision -making in their live, including jobs directions in life, etc. Pray for the Lord to grant a sense of peace, and to guide each one’s footsteps according to His will.
+2. Job Searching: Please pray for the efforts of new college graduates or anyone who is now looking for a job.
+
+3. Healing and Comfort: Pray for our church members and their families who are going through struggles with illness and treatment. May God comfort and heal them and grant enduring strength and peace.
+
+4. People Who Are Under Stress: A lot of our members, especially students, are living in a very stressful situation almost every day. Some also have to deal with various kinds of health issue.  Let us pray for and encourage one another. May the God of hope fill us with all joy and peace as we trust in Him, so that we may overflow with hope by the power of the Holy Spirit. (Romans 15:13).
+
