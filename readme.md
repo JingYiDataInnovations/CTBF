@@ -1,10 +1,10 @@
 
-# FICCC CTBF Weekly Newsletter (10/26/2020 - 11/1/2020)
+# FICCC CTBF Weekly Newsletter (11/2/2020 - 11/8/2020)
 
  
 ## Fellowship
-- **查经主题/ Topic of Bible study**: 对信心动摇者的劝勉; 希伯来书 10:19-25
-- **带领/Lead**: Jing
+- **查经主题/ Topic of Bible study**: 对故意犯罪者的警告; 希伯来书 10:26-39
+- **带领/Lead**: Mao
 		
 
 
@@ -147,36 +147,45 @@ pwd 2020
 ## Prayer
 
 ### Missions/World 
-1) Pray for Abi as she prepares for short-term mission to Africa: Abi Bernard from the English congregation at FICCC is hoping to leave for a seven month short-term mission trip to the African country of Ivory Coast with Cru in mid-November. The main factor that could affect her departure is the presidential election that Ivory Coast will have on 31 October. Let’s pray for God to give peace to Abi as she waits for confirmation that she can go, and also ask the Lord for His gracious hand of protection over the election in Ivory Coast so there won’t be any significant unrest.
+1) Pray for Stuart and Peggy’s Bible translation work: Stuart and Peggy are now based in back in Michigan and continuing with the work of Bible translation. Praise God that they’ve been getting long-delayed feedback on some of the OT books they finished some time ago. Pray that this feedback would continue, and that Peggy would continue to have opportunities for mentoring via email as she trains to work as a Bible translation consultant.
+ 
+2) Pray for Derrick and Esther return to Thailand:  Derrick and Esther and their two kids are currently in California and waiting to return to Thailand, where they work as missionaries with OMF. They are still waiting to receive visas to return, which have been delayed due to the pandemic and recent pro-democracy protests in the country. Let’s pray that the protests would lead to constructive change, and that the Lord would graciously open a door for Derrick and Esther to receive their visas and return.
+ 
+3) Pray for God to lead FICCC’s Mission Committee as they meet this month:The Mission Committee at FICCC meets twice each year to guide our church’s involvement in the work of missions, and the next meeting will be later this month. Pray that God’s Spirit leads the discussion of the Committee members and the decisions they make, so that FICCC can make the best use of its resources to support missions and the spread of the gospel worldwide.
 
-2) Pray for God to bless the ministry of Second Wind Cottages in Ithaca: FICCC supports a Christian group in Ithaca called Second Wind Cottages that shares the gospel with homeless people and provides temporary housing for them in order to help them get back on their own feet. Pray that God blesses this ministry and uses it to draw many needy souls to Christ, especially in the midst of the pandemic and increased risk of homelessness.
 
 
 
 ### Church                                                                                                                                                                                                                                                                             
-1. Praise the Lord!!!!Mandarin Evangelistic Meetings:  Praise the Lord that by God’s grace and His own mighty work our online evangelistic meetings last weekend went very well.  Most people felt very positive after hearing the message given by Prof. Der-chen Chang. More than 130 person from our church and other area joined the online meetings, and quite a few seekers attended all three or two of the three meetings.  Among seekers total 8 people check-marked on the response card that they decided to accept Jesus; We should also thank God that so many coworkers worked very hard behind the scene; many brothers and sisters made serious effort to personally invite their friends; and many prayed really faithfully behind the scene. 
+1. Bible Read-a-thon: Praise the Lord! More than 20 people (adults, youths, and children) from the Chinese Congregations successfully completed last season’s Bible Read-a-thon. The new season of Bible Read-a-thon has begun on November 1st and will last till the end of April 2021. Let us continue to pray that one of the blessings people will experience in this church is the development of the health habit of daily devotional Bible reading.
 
-2. Chinese Congregation Coworkers’ Meeting: The Chinese Congregation coworkers will have a scheduled bi-monthly meeting online from 1:30 to 2:30 PM this coming Sunday afternoon. Major issues for discussion include Christmas Eve program and future evangelistic meetings. Let us pray and ask God to guide these coworkers to have a very productive discussion and decision making. Let us also remember to pray for the Chinese Ministries coordinators and all fellowship leaders and their families.
+2. Governing Board Meeting This Saturday Morning: Deacons, elders, and pastors will have a scheduled board meeting from 9:30 AM to noon time next Saturday(11/13) online. A few important issues of the church will be discussed and some preliminary planning for next year will be made. Let us pray and ask God to bless the team ministry of this group of leaders in our church. Let us also take this opportunity to pray for every deacon (   Wenchao Wang –outreach and caring,Jocelyn Bibert– English Ministry; Victor Chen—Youth Ministry, Dae Guang Chung Kim – Secretary,), every elder (Mancang Dong, Jianhua Chen, John Barwick and David Ng), every pastor (Bin Tang and Paul Epp) and their families. Church members are always welcome to sit in our board meetings.
 
-3. Bible Read-a-thon:  The new season of Bible Read-a-thon will begin on November 1st and will last till the end of April 2021. Let us continue to pray that one of the blessings people will experience in this church is the development of the healthy habit of daily devotional Bible reading.
+3. English Congregation: Our English congregation has been challenged to pursue the "Baby Steps of Evangelism" with their non-Christian friends.  This includes praying for them daily, loving them, inviting them to evangelistic event, sharing their testimony, explaining the gospel and inviting them to become a Christian.  Pray that our disciples will do this and that as a result many non-Christians will become Christians. There have been a few non-Christians coming to our Bible studies, English worship and discipleship groups.  Pray that they will continue to attend and that that they will become Christians.
 
-4. Halloween: In the past many years our church has joined many other churches to discourage church members and their children to participate in Halloween activities. Praise the Lord that more and more public schools in Ithaca have decided not to organize Halloween activities during and even after school because they have recognized that now there is a national trend to respect many families’ belief against these activities.  Let us continue to pray that our church members and especially those who have children will make wise and godly decision around this time of the year.
+4. Youth Ministry: Several of our youth have not gotten baptized yet.  The logistics are more difficult because of the pandemic.  But still they can be baptized.  Pray that they will have a heart to get baptized, and for the logistics. There have been 3 or 4 non-Christian newcomers who have attended our youth nights.  Pray that they will continue to attend and they will become Christians. Last Friday, a couple of our youth led the Bible study in youth night and did a good job.  Pray that our youth will get more involved in leading our youth nights and thus take greater ownership of the youth ministry and grow in their commitment to the church and to Christ. The youth ministry has plans to have some of the youth nights meet in person in the basement of the church building.  Pray that this will help our youth participate more actively in our Bible studies.  Pray for safety.
 
-5. Solid Spiritual Growth of All Families: Pray that through mutual encouragement, caring, prayer, no family or individual in our church will be left behind, but every one—adult and kid will be motivated to grow in their relationship with God and experience the abundant blessings God intends for us to receive.
+5. The mountain stream team:  The Mountain Streams Team has not decided yet for sure whether they will be staying in Ithaca next semester or moving to East Asia.  Pray that they will be able to make that decision soon and make the necessary preparations for next semester.  They have been discipling many students.  Pray that they will make a lasting impact.
 
-6. Worship Service: Pray for the worship services this coming Sunday, let us come with a joyful heart and lift up our voice to glorify our Lord 
-a. Speakers: Rev. Bin Tang will preach in the Chinese worship service on “Poverty and Abundance Transformed" from 2 Corinthians 8：1-24. Pastor Paul will preach in the English Service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
-b. Communion: Pray for our readiness to take the communion.
-c. People Who Serve: Pray for everyone who will be serving in the worship service.
+6. Annual Church Clean-up:  Due to the pandemic, we will have our church’s annual clean-up this coming Weekends, 11/8, 11/14 & 11/15. Pray for good weather, good participation, and a joyful spirit of working together to make our church yards and buildings cleaner and more beautiful.
+
+7. Worship Service: Pray for the worship services this coming Sunday, let us come with a joyful heart and lift up our voice to glorify our Lord 
+a. Speskers: Rev. Joshua Luo from FL will preach in the Chinese worship service on “A biblical view on the wisdom of financial management” from 2 Corinthians 9:1-15. Pastor Paul will preach in the English Service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+b. People Who Serve: Pray for everyone who will be serving in the worship service.
+
+
 
 
 
 ### Individuals
-1. Follow-Up After Evangelistic Meetings: Pray for many seekers who responded to the altar calls in the evangelistic meetings.  Pray that through good follow-up by our fellowship coworkers great majority of them will have a clearer understanding of what it means to be followers of Christ and they will become even firmer in making this commitment.  Pray also for Christians who responded to the speaker’s challenge and invitation on Sunday morning.  Pray that all will seek God’s face and follow the lead of the Holy Spirit to start experiencing breakthrough in personal relationship with God in their daily walk.
+1. Peace and Love in Every Family: Continue to pray for God’s guidance and love to work in families that are going through the process of repairing, rebuilding, and renewing.
 
-2. New Comers Who Are Christian: Praise the Lord that God has brought several Christian students and families to our Chinese Congregation in this semester. Let us pray that they will adjust well to the new environment, feel warmly welcomed in our church, and soon follow God’s guidance to find their roles to serve in a fellowship group and in the church.
+2. Solid Spiritual Growth of All Families: Pray that through mutual encouragement, caring, prayer, no family or individual in our church will be left behind, but every one—adult and kid will be motivated to grow in their relationship with God and experience the abundant blessings God intends for us to receive.
 
-3. Job and School Application: Pray for church members who are currently applying for jobs or schools, including some high school seniors who are applying for college. Pray for God’s guidance upon them and for their trust in God.
+3. The Fall semester ending:  All of Cornell's in-person classes this semester will finish before Thanksgiving.  Many students find it difficult to take classes online and feel lonely because of social distancing.  Pray that they will study hard, find the help they need, keep up their spiritual disciplines and find their joy in the Lord.
+
+4. Members Whose Future Is Hanging in the Air: Quite a few church members are having the feeling that their immediate future seems to be hanging in the air. That includes some students who are graduating soon, people who need to look for job and graduate school, or people who are not sure about the major decisions they need to make soon.  Pray that they will continue to seek God and find peace in God’s presence in the midst of this challenging time.
+
 
 
 
