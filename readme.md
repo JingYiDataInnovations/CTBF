@@ -1,5 +1,5 @@
 
-# FICCC CTBF Weekly Newsletter (11/2/2020 - 11/8/2020)
+# FICCC CTBF Weekly Newsletter (11/9/2020 - 11/15/2020)
 
  
 ## Fellowship
