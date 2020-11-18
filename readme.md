@@ -3,8 +3,8 @@
 
  
 ## Fellowship
-- **查经主题/ Topic of Bible study**: 存信心而死的但没得着所应许的人; 希伯来书 11:1-16
-- **带领/Lead**: John
+- **查经主题/ Topic of Bible study**: 因信心得了美好证据而没得到所应许的人; 希伯来书 11:17-39
+- **带领/Lead**: Xiaojia
 		
 
 
@@ -147,39 +147,34 @@ pwd 2020
 ## Prayer
 
 ### Missions/World 
-1) Pray for Zheng Mingzhang as he reaches out to young people in rural Taiwan: Mingzhang, a former FICCC member and retired professor, is now doing outreach in rural Taiwan with an organization called Village Gospel Mission. They will be having a follow-up meeting for their Bilingual Camp on November 14. The previous follow-up meeting had 30 young students attend. Pray that God will bless this event and use it to draw the youngsters who attend it to come to church and ultimately to faith in Jesus Christ. 
+1) Pray for our FICCC Mission Committee meeting this Thursday, 19 November: The FICCC Mission Committee will meet on Thursday this week via Zoom to discuss our church’s work in the area of missions. Pray that God would bless our discussion and give us wisdom and unity as we seek to make the very best use that we can of the resources He has given us to advance His kingdom around the world.
 
-2) Pray for the campus workers FICCC supports at Cornell – Simon, Abi, and Teddy: FICCC is proud to support campus workers who share the gospel with and disciple Cornell students – Simon Huang (Cru), Abi Bernard (Cru), and Teddy Yesudasan (ISI). Let’s pray for all three of them, that the Lord would give them wisdom to minister effectively in the midst of the many challenges caused by the pandemic. Pray as well that the Lord would grant strength to Simon and Teddy, as well as their wives, as they care for newborn babies. Lastly, let’s ask the Lord to guide Abi according to His good will as she waits to possibly go on a year-long mission with Cru to the African country of Ivory Coast (if politics and the pandemic permit). 
+ 2) Pray for Siu-Yuk as she ministers to the needy in East Asia: The organization that Siu-Yuk helps to lead in East Asia, Children of Promise, recently received approval from the local government to start a home care service and an activity center. Pray that God would graciously guide her steps as they develop these new forms of service and would bless the relationships that she and other members of Children of Promise form with local people through them, that those whose hearts are open might receive the gospel.
 
-3) Pray for our FICCC Mission Committee meeting on Thursday, 19 November: The FICCC Mission Committee will meet on Thursday next week via Zoom to discuss our church’s work in the area of missions. Pray that God would bless our discussion and give us wisdom and unity as we seek to make the very best use that we can of the resources He has given us to advance His kingdom around the world.
 
 
 
 ### Church                                                                                                                                                                                                                                                                             
-1.	Abide in Christ: The only way to stay spiritually healthy and strong is to abide in Christ. Let us encourage and pray for one another, especially for ourselves or other brothers and sisters who have been feeling spiritually dry. Pray for vibrancy in our personal walk with God, in spiritual atmosphere in our homes and in our fellowship.  Pray that most believers in our church will become more and more like trees planted by streams of water (Psalm 1) and branches that remain well connected to the True Vine (John 15).
+1. Governing Board Meeting Last Saturday: Thank you all for the prayers.  All three deacons (Jocelyn Bibert; Victor Chen, Dae Guang Chung Kim), Four elders (Mancang, Jianhua,Davidf), and two pastors (Tang Epp,) attended the online meeting,   By God’s grace the board members were able to follow the meeting agenda, discuss all items, and finish the meeting on time.  Please do continue to pray for all deacons, elders, and pastors.  Pray especially that they will serve God and His church with a pure heart that is pleasing to Him.
 
-2.	Chinese Adult Sunday School: Let us give thanks to God for a good semester of Adult Sunday School in all online classes -- “Exploration of Faith” (for seekers), and “Revelation”-- for Christians. The combined average weekly attendance was 34 people. Let us also give thanks to God for the faithful service of all the teachers and for the diligent participation and learning of all the students.
+2. Evergreen’s Monthly Meeting This Saturday: Evergreen will hold its monthly meeting online this Saturday, from 9 AM to noon, Let us pray that many uncles and aunties will come to this early celebration of Thanksgiving, and God will use this meeting to speak to all of them.
 
-3.	Governing Board Meeting This Saturday Morning: Deacons, elders, and pastors will have a scheduled board meeting from 9:30 AM to noon time next Saturday(11/14) online. A few important issues of the church will be discussed and some preliminary planning for next year will be made. Let us pray and ask God to bless the team ministry of this group of leaders in our church. Let us also take this opportunity to pray for every deacon (   Wenchao Wang –outreach and caring, Jocelyn Bibert– English Ministry; Victor Chen—Youth Ministry, Dae Guang Chung Kim – Secretary,), every elder (Mancang Dong, Jianhua Chen, John Barwick and David Ng), every pastor (Bin Tang and Paul Epp) and their families. Church members are always welcome to sit in our board meetings.
-
-4.	Annual Church Clean-up:  We will continue to have our church’s annual clean-up this coming Weekends11/14 & 11/15., 11/21 &22. Pray for good weather, good participation, and a joyful spirit of working together to make our church yards and buildings cleaner and more beautiful.
-
-5.	Worship Service: Pray for the worship services this coming Sunday, let us come with a joyful heart and lift up our voice to glorify our Lord 
-a.	Speskers: Rev. Bin Tang will preach in the Chinese worship service on “溫柔和勇敢的轉化” from 2 Corinthians10:1-18. Pastor Paul will preach in the English Service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
-b.	People Who Serve: Pray for everyone who will be serving in the worship service.
-
+3. Worship Service: Pray for the worship services this coming Sunday, let us come with a joyful heart and lift up our voice to glorify our Lord 
+a. Speskers: Brother Peng Tian will preach in the Chinese worship service on “Apostle Paul’s Defense” from 2 Corinthians11:1-15. Pastor Paul will preach in the English Service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+b. People Who Serve: Pray for everyone who will be serving in the worship service.
 
 
 
 
 ### Individuals
-1.	Seekers: Quite a few seekers have been coming to our fellowship meetings, Sunday school seeker’s class, and Sunday worship regularly. Let us pray that many of them will experience God’s promise in the Bible – “Seek and you shall find.”
+1. The Second wave of COVID 19 in NY State: There is evidence of second wave of COVID 19  in NY State as we saw the new cases daily more than thousands. Pray that we continue to be vigilant in taking protective and preventive measures as weather is getting colder and winter is setting in. If everyone is rigorous about mask use, physical distancing, appropriate hand hygiene, and avoids venues where masks are not used, especially indoor poorly ventilated spaces, the feared increase in new infections will hopefully be minimized.
 
-2.	Church Members Living with Family Members Who Are Not Yet Christians: Pray for some church members who are living with family members (e.g. spouse or parents) who are not yet Christians. Let us pray and ask God to give them patience and wisdom as they continue to seek to lead their loved ones to Christ.
+2. New Christian Families Moving to Ithaca:  Recently, a few Chinese Christian families that have moved to Ithaca have attened our church online Sunday service.  Let us pray that they will feel led to choose our church as their spiritual home in Ithaca and they will join us to work together to make this church a better place for everyone to experience God’s love in Jesus Christ.
 
-3.	The Second wave of COVID 19 in NY State: There is evidence of second wave of COVID 19  in NY State as we start seeing 3-digit cases of infection every day. Pray that we continue to be vigilant in taking protective and preventive measures as weather is getting colder and winter is setting in. If everyone is rigorous about mask use, physical distancing, appropriate hand hygiene, and avoids venues where masks are not used, especially indoor poorly ventilated spaces, the feared increase in new infections will hopefully be minimized.
+3. People Who Are Feeling Down: Pray for those who are down in spirit for various reasons—stress, set-back, spiritual issues, relationship problems, etc.  Pray that they will seek God’s face and follow God’s guidance to go through the valley.
 
-4.	Job and School Application: Pray for church members who are currently applying for jobs or schools, including some high school seniors who are applying for college. Pray for God’s guidance upon them and for their trust in God.
+4. Michael Cao’s B-Exam on Wednesday: Brother Mike Cao ( English Congregation) be defending his thesis this Wednesday, November 18th at 3:30 PM , please keep him your prayer.
+
 
 
 
