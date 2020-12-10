@@ -1,7 +1,6 @@
 
 # FICCC CTBF Weekly Newsletter 
-
- 
+#
 ## Fellowship
 - **查经主题/ Topic of Bible study**: 警告弃绝神恩典的人; 希伯来书 12:14-29
 - **带领/Lead**: Panle
