@@ -1,10 +1,10 @@
 
-# FICCC CTBF Weekly Newsletter (11/9/2020 - 11/15/2020)
+# FICCC CTBF Weekly Newsletter 
 
  
 ## Fellowship
-- **查经主题/ Topic of Bible study**: 因信心得了美好证据而没得到所应许的人; 希伯来书 11:17-39
-- **带领/Lead**: Xiaojia
+- **查经主题/ Topic of Bible study**: 警告弃绝神恩典的人; 希伯来书 12:14-29
+- **带领/Lead**: Panle
 		
 
 
@@ -147,34 +147,36 @@ pwd 2020
 ## Prayer
 
 ### Missions/World 
-1) Pray for our FICCC Mission Committee meeting this Thursday, 19 November: The FICCC Mission Committee will meet on Thursday this week via Zoom to discuss our church’s work in the area of missions. Pray that God would bless our discussion and give us wisdom and unity as we seek to make the very best use that we can of the resources He has given us to advance His kingdom around the world.
+1) Pray for Joanna Luh as she prepares to start a mission-related internship in January:  Joanna Luh, who is a member of the English congregation at FICCC and will graduate from Cornell this month, plans to do an internship with a Christian organization called Engineering Ministries International from January to May 2021. This will allow her to use her professional training to be involved in missions. Let’s ask the Lord to graciously provide all of the financial support that she needs for her internship by the middle of December. Pray as well that God would prepare her heart and use this time to deepen her vision for missions. 
 
- 2) Pray for Siu-Yuk as she ministers to the needy in East Asia: The organization that Siu-Yuk helps to lead in East Asia, Children of Promise, recently received approval from the local government to start a home care service and an activity center. Pray that God would graciously guide her steps as they develop these new forms of service and would bless the relationships that she and other members of Children of Promise form with local people through them, that those whose hearts are open might receive the gospel.
+2) Pray for Jeng Ming-Chang’s (Zheng Mingzhang) Christmas outreach in rural Taiwan: Former FICCC member Jeng Ming-Chang and his wife Xiu-Hui are serving with Village Gospel Mission in rural Taiwan. The local church they work with will be having a Christmas outreach on December 20. Let’s pray that God’s Spirit works through the musical drama they will perform to touch many hearts with His love and to bring lost souls to Christ. Pray as well that God blesses the hard work of preparation they are currently engaged in.
 
+3) Pray for Lu Tsun-En as he works on his Ph.D. dissertation in New Testament theology:  Tsun-En works full-time with Ambassadors for Christ training workers to reach out to Chinese students here in the US and is also currently completing his Ph.D. dissertation on the parables of Jesus (he is now more than halfway through his thesis). Tsun-En also has three young boys who need his attention. Pray for God to give Tsun-En strength, wisdom, and discipline to finish the dissertation while balancing ministry and family needs.
 
 
 
 ### Church                                                                                                                                                                                                                                                                             
-1. Governing Board Meeting Last Saturday: Thank you all for the prayers.  All three deacons (Jocelyn Bibert; Victor Chen, Dae Guang Chung Kim), Four elders (Mancang, Jianhua,Davidf), and two pastors (Tang Epp,) attended the online meeting,   By God’s grace the board members were able to follow the meeting agenda, discuss all items, and finish the meeting on time.  Please do continue to pray for all deacons, elders, and pastors.  Pray especially that they will serve God and His church with a pure heart that is pleasing to Him.
+1. Preparation for Christmas Eve Program: Pray for the planning and preparation for the Christmas Eve Program which is less than two weeks away. Pray for the coworkers who are in charge of the planning for various parts. As usual, a lot of members will be out of town during winter break. Pray that God will still use all those who stay in town to joyfully make preparation for the event and then have a meaningful night together with many seekers.
 
-2. Evergreen’s Monthly Meeting This Saturday: Evergreen will hold its monthly meeting online this Saturday, from 9 AM to noon, Let us pray that many uncles and aunties will come to this early celebration of Thanksgiving, and God will use this meeting to speak to all of them.
+2. What We Offer Up to Christ: As recorded in Matthew, the magi from the east came to celebrate the birth of the Savior with great dedication and they presented the gifts they had prepared as they worshipped the newborn King. Let us pray that each one of us will also be moved by God to want to present something meaningful and beautiful to Christ at this time of the year.  May the Spirit of God speak to us, touch our heart, and lead us to respond.
 
-3. Worship Service: Pray for the worship services this coming Sunday, let us come with a joyful heart and lift up our voice to glorify our Lord 
-a. Speskers: Brother Peng Tian will preach in the Chinese worship service on “Apostle Paul’s Defense” from 2 Corinthians11:1-15. Pastor Paul will preach in the English Service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+3. Children Ministry:  At the end of the year, let us give thanks to God for every adult who serves in our children ministry. There are many who are always willing to serve and have been serving so faithfully.  Let us also pray for the children, and ask God to bless them with a pure heart and a simple mind to accept the truth in the Bible and receive the Gospel of Jesus Christ.  Also pray for their practice of the song they will present in the Christmas Eve Program.
+
+4. Worship Service: Pray for the two worship services this coming Sunday, let us come with a joyful heart and lift up our voice to glorify our Lord 
+a. Speakers: Brother Jianhua Chen will preach in the Chinese worship service on “The Same Sprit and the Same Step” from 2 Corinthians 12:14 – 21. Pastor Paul will preach in the English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
 b. People Who Serve: Pray for everyone who will be serving in the worship service.
 
 
 
 
 ### Individuals
-1. The Second wave of COVID 19 in NY State: There is evidence of second wave of COVID 19  in NY State as we saw the new cases daily more than thousands. Pray that we continue to be vigilant in taking protective and preventive measures as weather is getting colder and winter is setting in. If everyone is rigorous about mask use, physical distancing, appropriate hand hygiene, and avoids venues where masks are not used, especially indoor poorly ventilated spaces, the feared increase in new infections will hopefully be minimized.
+1. Covid-19 Pandemic in local area: Pray that we continue to be vigilant in taking protective and preventive measures as weather is getting colder, winter is setting in., and the Covid-19 cases reached new record in Tompkins County. If everyone is rigorous about mask use, physical distancing, appropriate hand hygiene, and avoids venues where masks are not used, especially indoor poorly ventilated spaces, the feared increase in new infections will hopefully be minimized.
 
-2. New Christian Families Moving to Ithaca:  Recently, a few Chinese Christian families that have moved to Ithaca have attened our church online Sunday service.  Let us pray that they will feel led to choose our church as their spiritual home in Ithaca and they will join us to work together to make this church a better place for everyone to experience God’s love in Jesus Christ.
+2. Pastor Tang’s work permit: Pastor Tang’s work permit is still not responded from USCIS after Dec 2. Please continue to keep it in your prayer. 
 
-3. People Who Are Feeling Down: Pray for those who are down in spirit for various reasons—stress, set-back, spiritual issues, relationship problems, etc.  Pray that they will seek God’s face and follow God’s guidance to go through the valley.
+3. Final Exams:  Many students in our church are having final exams and final paper/projects due in these two weeks.  Pray for good health, perseverance, and staying well connected with God.
 
-4. Michael Cao’s B-Exam on Wednesday: Brother Mike Cao ( English Congregation) be defending his thesis this Wednesday, November 18th at 3:30 PM , please keep him your prayer.
-
+4. People Who Are Applying for Jobs or Schools: Continue to pray for several church members and alumni who are looking for jobs or applying for graduate schools. Pray and ask God to open doors for them and give them clear guidance. Some high school seniors will know the result of their Early-Decision college applications this week.
 
 
 
