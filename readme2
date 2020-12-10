@@ -1,9 +1,5 @@
 
-<<<<<<< HEAD
 # FICCC CTBF Weekly Newsletter 
-=======
-# FICCC CTBF Weekly Newsletter (11/16/2020 - 11/22/2020)
->>>>>>> 861d0eb78eb5048d649a286e1d61f957ebc14b0e
 
  
 ## Fellowship
