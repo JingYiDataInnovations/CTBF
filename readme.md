@@ -2,8 +2,8 @@
 # FICCC CTBF Weekly Newsletter 
 #
 ## Fellowship
-- **查经主题/ Topic of Bible study**: 警告弃绝神恩典的人; 希伯来书 12:14-29
-- **带领/Lead**: Panle
+- **查经主题/ Topic of Bible study**: 蒙神悦纳的心; 希伯来书 13:1-14
+- **带领/Lead**: Dong
 		
 
 
@@ -146,37 +146,34 @@ pwd 2020
 ## Prayer
 
 ### Missions/World 
-1) Pray for Joanna Luh as she prepares to start a mission-related internship in January:  Joanna Luh, who is a member of the English congregation at FICCC and will graduate from Cornell this month, plans to do an internship with a Christian organization called Engineering Ministries International from January to May 2021. This will allow her to use her professional training to be involved in missions. Let’s ask the Lord to graciously provide all of the financial support that she needs for her internship by the middle of December. Pray as well that God would prepare her heart and use this time to deepen her vision for missions. 
+1) Pray for Derrick and Esther’s English/Mandarin school Christmas outreach in Thailand: One of the important avenues of outreach to the Northern Thai people that Derrick and Esther have had is an English/Mandarin language school that they and some other missionaries have helped to run. This coming Saturday (19 Dec) the school will have a Christmas party. Pray that the ten students at the school will be willing to attend and that the Lord might prepare their hearts to hear (and the missionaries’ hearts to share) the wonderful message of Jesus and why He came.
 
-2) Pray for Jeng Ming-Chang’s (Zheng Mingzhang) Christmas outreach in rural Taiwan: Former FICCC member Jeng Ming-Chang and his wife Xiu-Hui are serving with Village Gospel Mission in rural Taiwan. The local church they work with will be having a Christmas outreach on December 20. Let’s pray that God’s Spirit works through the musical drama they will perform to touch many hearts with His love and to bring lost souls to Christ. Pray as well that God blesses the hard work of preparation they are currently engaged in.
-
-3) Pray for Lu Tsun-En as he works on his Ph.D. dissertation in New Testament theology:  Tsun-En works full-time with Ambassadors for Christ training workers to reach out to Chinese students here in the US and is also currently completing his Ph.D. dissertation on the parables of Jesus (he is now more than halfway through his thesis). Tsun-En also has three young boys who need his attention. Pray for God to give Tsun-En strength, wisdom, and discipline to finish the dissertation while balancing ministry and family needs.
+2) Pray for Siu-Yuk and the work of the Career Support Center that she has started: Siu-Yuk’s organization, called Children of Promise, has started a Career Supporting Center in East Asia for people with disabilities. They are seeing lives changed by sharing the love and message of Jesus with those who come to them. However, they have had difficulty finding clients who meet all of the criteria required by the government. Let’s pray that the Lord would have mercy on the Center and would guide Siu-Yuk and her coworkers as they try to find the best way to deal with this problem.
 
 
 
 ### Church                                                                                                                                                                                                                                                                             
-1. Preparation for Christmas Eve Program: Pray for the planning and preparation for the Christmas Eve Program which is less than two weeks away. Pray for the coworkers who are in charge of the planning for various parts. As usual, a lot of members will be out of town during winter break. Pray that God will still use all those who stay in town to joyfully make preparation for the event and then have a meaningful night together with many seekers.
+1. Preparation Christmas Eve Program: Let us continue to pray for the preparation of Christmas Eve program which will be held online next Thursday, 12/24, from 8:00-9:30 PM. Pray that
+a. Members of all groups will have the joyful and worshipful spirit to participate in the practice this week and the actual presentation of the skit and choir presentation, etc.
+b. Many seekers will join and be touched by the Christmas message conveyed through the songs and sermon.
+c. God will use John Barwick’s short message to touch everyone’s heart.
+d. All parts of the program will be well coordinated and the message of Christmas will be clearly presented throughout the evening.
 
-2. What We Offer Up to Christ: As recorded in Matthew, the magi from the east came to celebrate the birth of the Savior with great dedication and they presented the gifts they had prepared as they worshipped the newborn King. Let us pray that each one of us will also be moved by God to want to present something meaningful and beautiful to Christ at this time of the year.  May the Spirit of God speak to us, touch our heart, and lead us to respond.
+2. Bible Reading and Daily Devotion: It’s not uncommon for Christians to set the goal of having more consistent daily devotion and Bible reading in a new year. Pray that we will all take it as a joy to be reminded, encouraged, and empowered by the Holy Spirit to read God’s Word as our spiritual food every day.  Pray also that people who signed up for the church’s Bible Read-a-thon program will maintain the momentum and make good progress during Winter Break.
 
-3. Children Ministry:  At the end of the year, let us give thanks to God for every adult who serves in our children ministry. There are many who are always willing to serve and have been serving so faithfully.  Let us also pray for the children, and ask God to bless them with a pure heart and a simple mind to accept the truth in the Bible and receive the Gospel of Jesus Christ.  Also pray for their practice of the song they will present in the Christmas Eve Program.
-
-4. Worship Service: Pray for the two worship services this coming Sunday, let us come with a joyful heart and lift up our voice to glorify our Lord 
-a. Speakers: Brother Jianhua Chen will preach in the Chinese worship service on “The Same Sprit and the Same Step” from 2 Corinthians 12:14 – 21. Pastor Paul will preach in the English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+3. Worship Service: Pray for the two worship services this coming Sunday, let us come with a joyful heart and lift up our voice to glorify our Lord 
+a. Speakers: Rev. Zhiqiu Xu from Worcester, MA will preach in the Chinese worship service on “Strength in Weakness” from 2 Corinthians 13:1-4.  Brother Jonathan Aling will preach in the English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
 b. People Who Serve: Pray for everyone who will be serving in the worship service.
 
 
-
-
 ### Individuals
-1. Covid-19 Pandemic in local area: Pray that we continue to be vigilant in taking protective and preventive measures as weather is getting colder, winter is setting in., and the Covid-19 cases reached new record in Tompkins County. If everyone is rigorous about mask use, physical distancing, appropriate hand hygiene, and avoids venues where masks are not used, especially indoor poorly ventilated spaces, the feared increase in new infections will hopefully be minimized.
+1. Pray for the students who are graduating this month: Pray for Joana Luh,Micheal Cao from English congregation and  Yun Xiong, Jeremiah Hsia, Yixiao Wang  from Chinese Congregation who will graduate this month. Pray that God will guide them in their careers and they will get involved in churches where they will be disciples who make disciples.
 
-2. Pastor Tang’s work permit: Pastor Tang’s work permit is still not responded from USCIS after Dec 2. Please continue to keep it in your prayer. 
+2. Sister Hui Zhou’s A-Exam on coming Monday:  Sister Hui Zhou (CTBF) will take her PhD qualifying exam on coming Monday (12/21), Please keep her in your prayer.
 
-3. Final Exams:  Many students in our church are having final exams and final paper/projects due in these two weeks.  Pray for good health, perseverance, and staying well connected with God.
+3. Final Exams: Continue to pray for the undergraduate and graduate students in the two congregations as they face final examinations and deadlines. May God give them good health, strength and wisdom to do the best they can.
 
 4. People Who Are Applying for Jobs or Schools: Continue to pray for several church members and alumni who are looking for jobs or applying for graduate schools. Pray and ask God to open doors for them and give them clear guidance. Some high school seniors will know the result of their Early-Decision college applications this week.
-
 
 
 
