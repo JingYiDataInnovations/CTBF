@@ -1,9 +1,9 @@
 
 # FICCC CTBF Weekly Newsletter 
-#
+
 ## Fellowship
-- **查经主题/ Topic of Bible study**: 蒙神悦纳的心; 希伯来书 13:1-14
-- **带领/Lead**: Dong
+- **查经主题/ Topic of Bible study**: 有关祷告的指示（二）; 提摩太前书2:8-15
+- **带领/Lead**: David
 		
 
 
@@ -145,35 +145,34 @@ pwd 2020
 
 ## Prayer
 
-### Missions/World 
-1) Pray for Derrick and Esther’s English/Mandarin school Christmas outreach in Thailand: One of the important avenues of outreach to the Northern Thai people that Derrick and Esther have had is an English/Mandarin language school that they and some other missionaries have helped to run. This coming Saturday (19 Dec) the school will have a Christmas party. Pray that the ten students at the school will be willing to attend and that the Lord might prepare their hearts to hear (and the missionaries’ hearts to share) the wonderful message of Jesus and why He came.
+Missions/World /Nation 
+1) Pray for Lu Tsun-En as he works on his dissertation in New Testament theology: Tsun-En is currently pushing hard to finish his dissertation by the fall of this year. Pray that the Lord gives him strength and wisdom as he writes, as well as discipline with his schedule, so that he still has quality time with his wife and three boys, and can attend to his ministry with AFC.
 
-2) Pray for Siu-Yuk and the work of the Career Support Center that she has started: Siu-Yuk’s organization, called Children of Promise, has started a Career Supporting Center in East Asia for people with disabilities. They are seeing lives changed by sharing the love and message of Jesus with those who come to them. However, they have had difficulty finding clients who meet all of the criteria required by the government. Let’s pray that the Lord would have mercy on the Center and would guide Siu-Yuk and her coworkers as they try to find the best way to deal with this problem.
+ 2) Pray for Li Yue as he starts his new term at seminary: Li Yue just started his new term of online theological study at Gordon-Conwell this week, and is very thankful to the brothers and sisters at FICCC for their generous financial support. Pray that God blesses his study, and especially his preparation for the Greek competency test in April.
 
+Church
+1. Groups and Their Leaders:  Soon the new semester will begin, let us pray for God’s blessing and guidance upon each fellowship group and its leaders. These leaders include CTBF’s Dong Wang, Evergreen’s Uncle Chou Li, CCCF’s Jiahe Chen,  Basil: Kaiyue Sun, FF-Canaan’s Mancang Dong , FF-University Heights’s Hui Zhu.
 
+2. Governing Board Meeting This Saturday, 1/30: The elders, deacons and pastors will have a scheduled bi-monthly board meeting online, from 9:00 AM to noon time. Pray and ask God to bless them with a joyful spirit to work in unity, and wisdom to make decisions that are best for the church.
 
-### Church                                                                                                                                                                                                                                                                             
-1. Preparation Christmas Eve Program: Let us continue to pray for the preparation of Christmas Eve program which will be held online next Thursday, 12/24, from 8:00-9:30 PM. Pray that
-a. Members of all groups will have the joyful and worshipful spirit to participate in the practice this week and the actual presentation of the skit and choir presentation, etc.
-b. Many seekers will join and be touched by the Christmas message conveyed through the songs and sermon.
-c. God will use John Barwick’s short message to touch everyone’s heart.
-d. All parts of the program will be well coordinated and the message of Christmas will be clearly presented throughout the evening.
+3. Youth Ministry: Pray that the youth will have a comprehensive understanding of the Gospel and will be able live it out in all aspects of their lives. Pray that the youth will develop a deep hunger and desire for reading the Bible. Pray for strength, wisdom, and endurance for the youth workers as they serve and minister to the youth.  Pray for parents of the youth as they disciple their children within their families and partner with the youth workers.
 
-2. Bible Reading and Daily Devotion: It’s not uncommon for Christians to set the goal of having more consistent daily devotion and Bible reading in a new year. Pray that we will all take it as a joy to be reminded, encouraged, and empowered by the Holy Spirit to read God’s Word as our spiritual food every day.  Pray also that people who signed up for the church’s Bible Read-a-thon program will maintain the momentum and make good progress during Winter Break.
+4. Elders and Deacons Nomination: In preparation for the 4/25 annual meeting, our church has started the process of nominating new elders and deacons. The Nomination Committee will soon meet to accept and review recommendations, and then approach various people for the positions that are to be filled. Pray for God’s guidance throughout the nomination process.
 
-3. Worship Service: Pray for the two worship services this coming Sunday, let us come with a joyful heart and lift up our voice to glorify our Lord 
-a. Speakers: Rev. Zhiqiu Xu from Worcester, MA will preach in the Chinese worship service on “Strength in Weakness” from 2 Corinthians 13:1-4.  Brother Jonathan Aling will preach in the English worship service. Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it.
+5. Worship Service: Pray for the two worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
+a. Speaker: Rev. Yi Liu  from Tucson AZ will preach on “Praise the Lord, O My Soul” from Psalm118:14-29.  Pastor Paul  will preach on Book of Ruth in the English Service.  Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
 b. People Who Serve: Pray for everyone who will be serving in the worship service.
 
+Individual
+1. Chieh-Ren  Hsia’s  B-Exam on Jan 29:  Brother Chieh-Ren Hsia (CCCF) will take his phd defense B- Exam on Friday 1/29, please keep him in your prayer.  
 
-### Individuals
-1. Pray for the students who are graduating this month: Pray for Joana Luh,Micheal Cao from English congregation and  Yun Xiong, Jeremiah Hsia, Yixiao Wang  from Chinese Congregation who will graduate this month. Pray that God will guide them in their careers and they will get involved in churches where they will be disciples who make disciples.
+2. Pastor Paul and Family:   Praise the Lord! Pastor Paul Father funeral and burial service had done on last Saturday and the service has honored his father and glorified the Lord. Pastor Paul comes back Ithaca on this Friday,Hildy and Linnea be Ithaca on Saturday, please keep them in your prayer.
 
-2. Sister Hui Zhou’s A-Exam on coming Monday:  Sister Hui Zhou (CTBF) will take her PhD qualifying exam on coming Monday (12/21), Please keep her in your prayer.
+3. Members’ Traveling Back to Ithaca: Pray  that a few members of our church would safely return to Ithaca from aboard and in states.  Sister Haiyan He (CTBT)will  return on Jan 31 after months of stay in China.  Some college students will be traveling back to Ithaca in the two weeks. Let us pray for a smooth and safe travel for everyone.
 
-3. Final Exams: Continue to pray for the undergraduate and graduate students in the two congregations as they face final examinations and deadlines. May God give them good health, strength and wisdom to do the best they can.
+4. Students Who Are Graduating in May: Many students in our church are graduating in May.  Many of them have to complete major thesis or project, and at the same time start looking for jobs or applying for graduate schools.  Pray for the strength and guidance they need from God.  
 
-4. People Who Are Applying for Jobs or Schools: Continue to pray for several church members and alumni who are looking for jobs or applying for graduate schools. Pray and ask God to open doors for them and give them clear guidance. Some high school seniors will know the result of their Early-Decision college applications this week.
+5. Job Search and School Application: Continue to pray for God’s guidance upon quite a few church members who are looking for jobs or applying for school. Pray for faith, patience, and peace as they continue to wait.
 
 
 
