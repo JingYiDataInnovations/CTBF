@@ -4,7 +4,8 @@
 ## Fellowship
 - **查经主题/ Topic of Bible study**: 有关祷告的指示（二）; 提摩太前书2:8-15
 - **带领/Lead**: David
-		
+
+### 地点：
 
 
 - Zoom meeting starts at **7 pm on Friday:**
