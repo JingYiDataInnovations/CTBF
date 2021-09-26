@@ -139,37 +139,3 @@ K-G2      11:00      30min       3131606302
 
 G3-5      11:00      30min       8627729998
 pwd 2020
-
-## Prayer
-
-Missions/World /Nation 
-1) Pray for Lu Tsun-En as he works on his dissertation in New Testament theology: Tsun-En is currently pushing hard to finish his dissertation by the fall of this year. Pray that the Lord gives him strength and wisdom as he writes, as well as discipline with his schedule, so that he still has quality time with his wife and three boys, and can attend to his ministry with AFC.
-
- 2) Pray for Li Yue as he starts his new term at seminary: Li Yue just started his new term of online theological study at Gordon-Conwell this week, and is very thankful to the brothers and sisters at FICCC for their generous financial support. Pray that God blesses his study, and especially his preparation for the Greek competency test in April.
-
-Church
-1. Groups and Their Leaders:  Soon the new semester will begin, let us pray for God’s blessing and guidance upon each fellowship group and its leaders. These leaders include CTBF’s Dong Wang, Evergreen’s Uncle Chou Li, CCCF’s Jiahe Chen,  Basil: Kaiyue Sun, FF-Canaan’s Mancang Dong , FF-University Heights’s Hui Zhu.
-
-2. Governing Board Meeting This Saturday, 1/30: The elders, deacons and pastors will have a scheduled bi-monthly board meeting online, from 9:00 AM to noon time. Pray and ask God to bless them with a joyful spirit to work in unity, and wisdom to make decisions that are best for the church.
-
-3. Youth Ministry: Pray that the youth will have a comprehensive understanding of the Gospel and will be able live it out in all aspects of their lives. Pray that the youth will develop a deep hunger and desire for reading the Bible. Pray for strength, wisdom, and endurance for the youth workers as they serve and minister to the youth.  Pray for parents of the youth as they disciple their children within their families and partner with the youth workers.
-
-4. Elders and Deacons Nomination: In preparation for the 4/25 annual meeting, our church has started the process of nominating new elders and deacons. The Nomination Committee will soon meet to accept and review recommendations, and then approach various people for the positions that are to be filled. Pray for God’s guidance throughout the nomination process.
-
-5. Worship Service: Pray for the two worship services this coming Sunday.  Let us come with a joyful heart and lift up our voices to glorify God.
-a. Speaker: Rev. Yi Liu  from Tucson AZ will preach on “Praise the Lord, O My Soul” from Psalm118:14-29.  Pastor Paul  will preach on Book of Ruth in the English Service.  Please pray for their sermon preparations. Let us also pray for our readiness to hear God’s Word and to respond to it. 
-b. People Who Serve: Pray for everyone who will be serving in the worship service.
-
-Individual
-1. Chieh-Ren  Hsia’s  B-Exam on Jan 29:  Brother Chieh-Ren Hsia (CCCF) will take his phd defense B- Exam on Friday 1/29, please keep him in your prayer.  
-
-2. Pastor Paul and Family:   Praise the Lord! Pastor Paul Father funeral and burial service had done on last Saturday and the service has honored his father and glorified the Lord. Pastor Paul comes back Ithaca on this Friday,Hildy and Linnea be Ithaca on Saturday, please keep them in your prayer.
-
-3. Members’ Traveling Back to Ithaca: Pray  that a few members of our church would safely return to Ithaca from aboard and in states.  Sister Haiyan He (CTBT)will  return on Jan 31 after months of stay in China.  Some college students will be traveling back to Ithaca in the two weeks. Let us pray for a smooth and safe travel for everyone.
-
-4. Students Who Are Graduating in May: Many students in our church are graduating in May.  Many of them have to complete major thesis or project, and at the same time start looking for jobs or applying for graduate schools.  Pray for the strength and guidance they need from God.  
-
-5. Job Search and School Application: Continue to pray for God’s guidance upon quite a few church members who are looking for jobs or applying for school. Pray for faith, patience, and peace as they continue to wait.
-
-
-
